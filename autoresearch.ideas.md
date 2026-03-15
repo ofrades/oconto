@@ -1,2 +1,3 @@
-- Revisar `canto_I.md`–`canto_VIII.md` depois de avançar mais no poema, para unificar melhor o proémio, a invocação e a arquitetura global **in media res**.
-- No arco do Sinai ainda restante, privilegiar grandes cenas épicas e discursos formais: bezerro de ouro, intercessão de Moisés, renovação da aliança, glória divina e tabernáculo.
+- Revisar `canto_I.md`–`canto_X.md` depois de avançar mais no poema, para unificar melhor o proémio, a invocação e a arquitetura global **in media res**.
+- Novo caminho: arco de Cades e da incredulidade — espias, gigantes da terra, fidelidade de Caleb e Josué, rebelião do povo e sentença dos quarenta anos.
+- Novo caminho: arco da peregrinação ferida — murmurações, serpente de bronze, Balaão e a aproximação final da Terra Prometida.
