@@ -1,2 +1,0 @@
-- Reestruturar `canto_IX.md` como cruz, sepulcro e noite extrema.
-- Reestruturar `canto_X.md` para que a Ressurreição seja o grande giro eucatastófico final, seguido por Emaús, Ascensão, Pentecostes, Igreja, Apocalipse e Nova Jerusalém.
