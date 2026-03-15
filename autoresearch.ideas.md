@@ -1,2 +1,2 @@
-- Revisar `canto_I.md`–`canto_VII.md` depois de avançar mais no poema, para unificar melhor o proémio, a invocação e a arquitetura global **in media res**.
-- No arco do Sinai, privilegiar grandes cenas épicas e discursos formais: maná, monte fumegante, Decálogo, bezerro de ouro, intercessão de Moisés e tabernáculo.
+- Revisar `canto_I.md`–`canto_VIII.md` depois de avançar mais no poema, para unificar melhor o proémio, a invocação e a arquitetura global **in media res**.
+- No arco do Sinai ainda restante, privilegiar grandes cenas épicas e discursos formais: bezerro de ouro, intercessão de Moisés, renovação da aliança, glória divina e tabernáculo.
