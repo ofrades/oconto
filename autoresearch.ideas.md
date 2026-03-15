@@ -1,0 +1,1 @@
+- Revisar `canto_I.md`–`canto_IV.md` para reforçar a arquitetura épica global: abertura verdadeiramente **in media res**, proémio inequívoco com proposição + invocação, e mais cenas dramáticas / retrospectivas em vez de sequência quase-cronística.
