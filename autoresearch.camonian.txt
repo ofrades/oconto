@@ -6,3 +6,4 @@ canto_V.md
 canto_VI.md
 canto_VII.md
 canto_VIII.md
+canto_IX.md
