@@ -4,14 +4,14 @@
 
 **1**
 
-Mal se calou do Anjo a voz dourada,
-Parte Maria à serra de Judá;
-Leva no seio a Luz da madrugada,
-E à casa de Zacarias subirá.
-Não vai em carro, púrpura ou espada,
-Mas pobre, como a graça ao mundo vai;
-E leva, em seu silêncio e formosura,
-A visita de Deus à criatura.
+Da casa onde o recado ardendo entrara,
+Sobe Maria às serras de Judá;
+No seio leva a Luz que despontara,
+E à casa de Zacarias chegará.
+Não vai com pompa igual à que desbara
+Os reinos vãos que o mundo celebrar;
+Vai pobre, como vai de Deus a cura,
+Coberta em paz, silêncio e formosura.
 
 **2**
 
@@ -37,14 +37,14 @@ Saúda a nova Luz que já lhe arde.
 
 **4**
 
-Então responde a Virgem em brandura:
-“Minha alma engrandece ao sumo Senhor;
-Olhou sua escrava humilde e baixa e escura,
-E a encheu de glória, graça e resplendor.
-Mostrou no fraco a sua força pura,
-Mudou em canto o velho dissabor;
+Então responde a Virgem: “A grandeza
+De Deus engrandece a alma que o bendiz;
+Olhou sua escrava em mísera baixeza,
+E a fez jardim onde o favor se diz.
+Mostrou no fraco a suma fortaleza,
+E no pequeno o braço do Juiz;
 Abate o vão, exalta o peito aflito,
-E lembra-se da aliança em seu conflito.
+E lembra-se da Aliança em seu conflito.
 
 **5**
 
@@ -55,13 +55,13 @@ Mostrando em tudo a eterna fortaleza.
 Lembra-se de Israel e dos varões,
 A quem jurou por Abraão tal grandeza.”
 E a casa inteira, em júbilo e tremor,
-Arde ao mesmo tempo em paz e em fervor.
+Arde em silêncio, paz e resplendor.
 
 **6**
 
 Mas longe, em Nazaré, José receia
 O peso do mistério impenetrado;
-Vê na desposa o sinal que o alheia,
+Vê na desposa um sinal que o alheia,
 E cala a dor no peito atribulado.
 Porém o Anjo em sonho lhe clareia
 O que trazia o pensamento turbado:
@@ -121,7 +121,7 @@ Mas o Anjo lhes desfaz tamanho assalto:
 “Nasceu-vos hoje o Salvador e Guia,
 Na cidade de David, lume alto;
 Vereis o Rei em pobres panos posto,
-Onde o animal se abriga ao frio e agosto.”
+Onde o animal se abriga ao frio agosto.”
 
 **12**
 
@@ -141,7 +141,7 @@ As vozes, o presépio e o novo lume;
 Ao templo sobe o santo e novo Infante,
 Com pobre oferta e peregrino costume.
 Toma-o Simeão, velho vigilante,
-E em paz o reconhece e o seu nome assume;
+E em paz o reconhece e o assume;
 Mas volta-se à Mãe, e em sombra aguda,
 Lhe mostra a espada que o futuro muda.
 
@@ -162,10 +162,10 @@ Longe, porém, atentos ao alto giro,
 Veem Magos novo lume forasteiro;
 Deixam palácio, estudo e vão delírio,
 E seguem-no por ermo e nevoeiro.
-Chegam, prostrados, ao divino Empíreo
+Chegam, prostrados, ao divino Império
 Escondido em menino verdadeiro;
 Dão ouro, mirra e incenso à Majestade,
-Que veste a carne e oculta a eternidade.
+Que veste a carne e vela a eternidade.
 
 **16**
 
