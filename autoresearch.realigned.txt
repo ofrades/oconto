@@ -3,3 +3,4 @@ canto_II.md
 canto_III.md
 canto_IV.md
 canto_V.md
+canto_VI.md
