@@ -4,264 +4,220 @@
 
 **1**
 
-Já quando a aurora mal rompia o pranto
-Sobre o sepulcro em pedra lacrado,
-Vão santas mulheres, com perfume e espanto,
-Buscar o corpo do Senhor amado.
-Mas veem a pedra revolvida ao canto,
-E o guarda, outrora altivo, derrubado;
-Não acha a morte o preso que supunha,
-Nem pode o selo humano ao Céu pôr unha.
+Subidos já ao Céu o Rei e a Chaga,
+Fica em Jerusalém pequena grei,
+Não órfã, embora o mundo ainda a traga
+Por fraca e vã aos olhos de sua lei.
+Persevera em oração, enquanto alaga
+A promessa do Alto a espera do pequeno rebanho;
+E o silêncio, antes medo, agora ardia,
+Como alvorada antes do novo dia.
 
 **2**
 
-Fulge um Anjo: “Por que entre os mortos quereis
-Aquele que venceu mortal jazigo?
-Não está aqui; vive. Ide e dizei
-Que vai diante dos seus, fiel amigo.”
-Com tal anúncio a noite perde as leis,
-E a nova criação desperta consigo;
-Mas antes que a vitória inteira brilhe,
-Convém tornar à estrada que a partilhe.
+Chega o quinquagésimo claro dia,
+E de repente um Vento do alto soa;
+Enche a casa, sacode a companhia,
+E em fogo repartido a unge e povoa.
+Línguas descem, mas não por fantasia:
+É o Espírito que ao barro se abençoa;
+E Babel, que partira a voz em guerra,
+Começa a ser curada sobre a terra.
 
 **3**
 
-Desce a palavra à Virgem recolhida,
-Em Nazaré de humilde e santo abrigo;
-Saúda-a o mensageiro da alta vida,
-Prometendo-lhe Filho e Deus consigo.
-Não por varão, mas pela sombra erguida
-Do Espírito, concebe o Verbo antigo;
-E o mesmo que no Gênesis disse “haja”
-No ventre da donzela agora viaja.
+Falam então as grandes maravilhas
+De Deus em língua de remotas gentes;
+Partos, romanos, árabes, ilhas,
+Ouvem num só louvor vozes diferentes.
+Uns zombam, cegos às divinas trilhas;
+Outros se espantam, trêmulos e atentos.
+Sai Pedro, o mesmo que negara o Mestre,
+Mais firme agora em fogo que o reveste.
 
 **4**
 
-Nasce em Belém, sem púrpura nem sala,
-O Rei por quem suspiravam reis e pobres;
-Canta-lhe o coro angélico, e se iguala
-O céu à noite em claridades nobres.
-Pastores vêm; depois do Oriente abala
-A estrela os Magos com seus dons e sobres.
-Mas Herodes, temendo o Infante manso,
-Tinge de sangue alheio o seu descanso.
+Ergue a palavra, abre Joel e David,
+Mostra no Salmo o túmulo vencido;
+Aquele que pregastes ao madeiro
+Deus o fez Cristo e Senhor, ressurgido.
+Fere-se a turba em coração inteiro,
+E busca no remorso o novo abrigo;
+Manda o Apóstolo: “Crede, arrependei-vos,
+E em nome de Jesus regenerai-vos.”
 
 **5**
 
-Cresce escondido em anos de obediência,
-Até que ao Jordão desce em nosso vulto;
-João o aponta, e a celeste evidência
-Abre os céus sobre o Servo já adulto.
-Desce a pomba, e do Pai sai a sentença:
-“Este é meu Filho amado, a quem escuto.”
-E o Novo Adão, ungido para a guerra,
-Vai ao deserto reconquistar a terra.
+Nasce a Igreja em doutrina, pão e prece,
+Na fração santa e em comunhão de bens;
+Não por contrato vão, que o mundo tece,
+Mas por caridade que excede os seus desdéns.
+O mesmo Cristo, embora aos céus se alce,
+No Corpo seu entre os humildes vem;
+E a mesa, mais profunda que qualquer tesouro,
+Faz de pobres e ricos um só coro.
 
 **6**
 
-Lá o tenta a serpente, antiga e dura,
-Com pão, prodígio e reino oferecido;
-Mas vence o Cristo, em santa Escritura,
-Todo engano ao primeiro homem devido.
-Onde Adão se curvou à formosura,
-Fica o segundo firme e obedecido;
-E já retorna, em força do alto Espírito,
-A desfazer o cativeiro antigo.
+Junto à Porta Formosa, um coxo antigo
+Pede esmola aos que ao templo caminhavam;
+Pedro lhe diz: “Não tenho prata comigo,
+Mas o que tenho te dou”, e as mãos o alçavam.
+Anda o mendigo, louva ao Deus amigo,
+E os pórticos de assombro se enchiam.
+Mas toda graça que no mundo avança
+Acorda logo a raiva da arrogância.
 
 **7**
 
-Chama discípulos da rede e da oficina,
-Faz da poeira estrada para o Reino;
-Em Caná a água em vinho se inclina,
-Sinal primeiro de mais alto desígnio.
-Ao cego dá clarão, ao surdo ensina,
-Ao leproso restitui a forma e o vinho;
-Foge a demência, acalma-se o mar bravo,
-E os pães se multiplicam em suas mãos de servo.
+Prendem os chefes os varões do Nome,
+Vedando-lhes doutrina e testemunho;
+Mas quanto mais o ódio a voz consome,
+Mais cresce a santa vide em novo punho.
+Não podem calar quem viu e sabe como
+O Ressuscitado abriu-lhe o mundo inteiro;
+E a Igreja aprende, em seu primeiro dano,
+Que o sangue sela o verbo soberano.
 
 **8**
 
-Sobe ao monte e proclama lei mais funda:
-Bem-aventura o pobre, o manso e aflito;
-Manda amar o inimigo, e que redunda
-Melhor tesouro no secreto escrito.
-Fala por parábolas, para que se esconda
-E se revele o Reino ao coração contrito;
-Como semente, pérola e fermento,
-Vai Deus crescendo em oculto movimento.
+Chega Estêvão, de rosto quase angélico,
+Cheio de graça, força e sabedoria;
+Revê a história em longo canto evangélico,
+Mostrando-a toda ao Justo que surgia.
+Veem-se os céus abertos ao mártir célico,
+Que pede perdão à turba que o feria;
+Cai sob as pedras, mas seu brando alento
+Semeia em morte novo movimento.
 
 **9**
 
-Sobre o Tabor fulgura por um instante
-A glória que o comum véu encobria;
-Moisés e Elias falam ao Semblante,
-Que em breve em cruz cumprirá sua via.
-Mas desce logo o Mestre peregrinante,
-Porque ao Calvário tende a profecia;
-E já em Betânia o morto Lázaro obedece,
-Como prenúncio do que ao mundo acontece.
+Guardava as capas Saulo enfurecido,
+Respirando ameaça e morte à Igreja;
+Mas no caminho a Damasco, abatido,
+Cai ante a Luz que tudo governa e beija.
+“Por que me persegues?” — ouve confundido,
+E perde a vista para mais alta visão inteira;
+Recebe o batismo, e o feroz perseguidor
+Se torna vaso eleito do Senhor.
 
 **10**
 
-Entra em Sião montado em jumento humilde,
-Enquanto a turba espalha ramos e mantos;
-Chora a cidade, porque não distingue
-O dia em que a visita vêm dos altos.
-Purga o templo do comércio vil que o tingue,
-E põe nos chefes escândalo e sobressaltos;
-Quanto mais clara é sua luz e aviso,
-Mais cerram contra Ele ódio e juízo.
+Corre então Paulo mar, sinagoga e praça,
+Levando a Cruz a gregos e gentios;
+Planta assembleias onde a noite passa,
+Entre açoites, prisões e alheios rios.
+Em Cristo já não vale raça ou raça,
+Mas nova criação sobre os antigos fios;
+E o que fora murado em lei e sangue
+Se abre às nações no Cordeiro exangue.
 
 **11**
 
-Chega a ceia em que o Cordeiro antigo
-Cede lugar ao Corpo verdadeiro;
-Toma o pão, parte-o, dá-o aos seus consigo,
-E faz do vinho o Sangue derradeiro.
-Lava-lhes os pés, Rei feito servidor amigo,
-E entrega novo amor por mandamento inteiro;
-Depois vai para a noite onde se avizinha
-O cálice de ira e sua mais funda espinha.
+Vai Pedro a Cornélio, e vê do alto descida
+A visão que purifica o antes alheio;
+Não chama impuro ao que Deus fez de vida,
+Nem fecha ao Espírito gentílico o passeio.
+Assim a Igreja, embora de raiz antiga,
+Alarga ao mundo inteiro o santo meio;
+Não perde Israel, mas cumpre sua promessa,
+Quando a bênção em todas as gentes se expressa.
 
 **12**
 
-No horto sua alma até a morte geme;
-Cai rosto em terra o novo Intercessor.
-Suor de sangue o corpo santo treme,
-Mas não recua ao peso do furor.
-“Faça-se tua vontade”, diz, e vence
-Onde tantos caíram por menor ardor.
-Chega o traidor com beijo e com espada,
-E a ovelha se entrega pela grei culpada.
+Nem faltam dissensões, fadigas, pranto,
+Nem sempre a paz exterior acompanha;
+Mas em concílio busca o corpo santo
+Guardar a graça livre que o Céu granha.
+Não pelo jugo antigo em peso tanto,
+Mas pela fé que ao Amor se entranha,
+Se reconhece a obra do Alto Espírito,
+Que faz um povo novo em velho escrito.
 
 **13**
 
-Passa por sacerdotes, falsa prova,
-Por Herodes leviano e por Pilatos;
-A multidão, que há pouco o louva,
-Agora escolhe Barrabás entre os ingratos.
-Vestem-no de escárnio, e em sua fronte nova
-Cravam espinhos por diadema ingrato;
-Mas mais real nunca reinou monarca,
-Que então no opróbrio erguia a eterna marca.
+Roma se ergue em púrpura e aparato,
+Com César, circo, espada e magistrado;
+Pensa vencer o Nome pelo trato
+Do ferro, do decreto e do bramado.
+Mas quanto mais derrama sangue grato,
+Mais cresce o campo pelo sangue arado;
+Pois cada mártir, em arena ou fogo,
+Torna mais vivo o Ressuscitado jogo.
 
 **14**
 
-Sobe ao Calvário com madeiro às costas,
-Como Isaac que ao monte obedecera;
-Pregam-lhe as mãos que levantaram portas,
-E os pés que sobre o mar puseram esfera.
-Entre ladrões consuma as horas postas,
-Pede perdão por quem o fere e espera;
-E ao bom ladrão abre, em hora escura,
-O Paraíso perdido à criatura.
+Não vence a Igreja por facção ou lança,
+Mas por cordeiral paciência e verdade;
+Traz nos lábios o perdão, na mão a esperança,
+No pão partido a sua identidade.
+Vê-se nas catacumbas a aliança,
+Mais forte que colunas de cidade;
+E assim o império, em sua glória dura,
+Não pode erguer-se contra tal brandura.
 
 **15**
 
-Cobre-se a terra de medonha treva,
-Rasga-se o véu do templo em dois partidos;
-Clama o Senhor, e o santo brado leva
-À consumação os séculos perdidos.
-Entrega ao Pai o espírito, e se eleva
-Mais forte a vida que os cravos feridos;
-Do lado aberto correm água e sangue,
-Fonte do pacto novo ao mundo exangue.
+Mas não cessa a peleja com os séculos;
+Velhas serpentes tomam novos nomes.
+Por vezes veste a besta santos títulos,
+Por vezes compra as almas e os renomes.
+Mistura-se a mentira aos tabernáculos,
+E a terra adora imagens e seus homens;
+Contudo, acima dos poderes do momento,
+Reina o Cordeiro em juízo e sacramento.
 
 **16**
 
-Descido à tumba, santifica a morte;
-Ao terceiro albor rompe-lhe a fechadura.
- Levanta-se, não como quem teve sorte,
-Mas como Autor da vida e da ventura.
-Vê-o Maria em jardim de novo norte,
-Como se o Éden reabrisse a antiga abertura;
-Depois aos seus se mostra, come e fala,
-E da incredulidade faz fé que embala.
+Em Patmos, no exílio e na vigília,
+João vê aberta a porta do alto Céu;
+Contempla o Trono, o Livro, a maravilha,
+E o Cordeiro imolado e sempre seu.
+Rompem-se selos, cai sobre a quadrilha
+Dos reinos vãos o peso do alto véu;
+E a história, que parecia sem governo,
+Mostra-se escrita no conselho eterno.
 
 **17**
 
-Vai com os dois a Emaús, sem ser sabido,
-Até partir o pão no fim da tarde;
-Sopra depois nos Onze o dom prometido,
-E a paz sobre o temor em brasa arde.
-Mostra a Tomé o lado já ferido,
-Para que a fé do mundo nunca tarde;
-E junto ao mar refaz a rede e o zelo,
-Confiando a Pedro o rebanho e o apelo.
+Surge o Dragão, a Besta e a grande Meretriz,
+Em ouro e sangue embriagada e forte;
+Seduzem reis, cidades e infeliz
+Terra que ama mais comércio que o Norte.
+Mas ouve-se do Céu a santa voz que diz:
+“Caiu Babilónia”, e já lhe chega a morte;
+Porque nenhum império, em brilho ou fama,
+Sufoca o fogo do divino drama.
 
 **18**
 
-No monte enfim se aparta em clara bênção,
-Subindo ao Pai de quem viera ao chão;
-Mas deixa à Igreja a grande comissão
-De anunciar seu Nome a toda geração.
-Não ficará órfã a santa reunião,
-Pois do alto virá força e consolação.
-E esperam os discípulos, concordes,
-O fogo que há de os armar sem cortes.
+Abre-se o Céu; vem o Cavaleiro santo,
+Chamado Fiel, Verdade e Rei dos reis;
+Julga e combate, não com vago espanto,
+Mas com a reta espada de suas leis.
+Cai o Dragão no lago do quebranto,
+E a morte entrega os mortos de uma vez;
+Cumpre-se enfim a antiga e primeira lida,
+Da Mulher contra a Serpe homicida.
 
 **19**
 
-Chega Pentecostes; desce o Vento santo,
-E línguas de fogo pousam sobre a grei.
-Sai Pedro a pregar, com novo encanto,
-Aquele que negara ao mesmo Rei.
-Cortam-se os corações ao vivo espanto,
-E nasce a Igreja em doutrina, pão e lei;
-O que Babel dividira em confusão
-Une agora a graça em uma só confissão.
+Então desce a Jerusalém celeste,
+Como esposa adornada ao seu Esposo;
+Não há mais pranto, noite, mar ou peste,
+Porque o Cordeiro a faz toda luminosa.
+Corre da cidade o rio que reveste
+A nova criação em dom copioso;
+E a árvore da vida, outrora vedada,
+Dá fruto eterno à raça restaurada.
 
 **20**
 
-Corre a palavra de Jerusalém ao mundo:
-Cai Saulo em pó, e Paulo se levanta;
-Leva a cruz a grego, judeu e imundo,
-E em cada porto uma assembleia planta.
-Sangra Estêvão, canta Paulo ao mar profundo,
-João vê Patmos sob a noite santa;
-Nem ferro, circo, espada ou magistrado
-Podem calar o Nome ressuscitado.
-
-**21**
-
-Mas não cessa a peleja até o fim do século;
-Dragão e besta se erguem contra os santos.
-Muitas vezes o império, em seu espetáculo,
-Veste de púrpura o sangue dos seus cantos.
-Contudo reina o Cordeiro no tabernáculo,
-Abrindo os selos por juízos e espantos;
-E a história inteira, com seus reis de barro,
-Corre ao tribunal do último amparo.
-
-**22**
-
-Soa a trombeta final; foge a noite antiga,
-E a morte entrega os mortos que guardara.
-Julga o Cordeiro, e a Serpe, velha inimiga,
-É lançada ao lago onde a soberba para.
-Cumpre-se então a antiga e primeira briga:
-Da Mulher vem a planta que a fronte esmagara.
-O Éden perdido, em cruz e glória unido,
-Volta mais alto no Amor restituído.
-
-**23**
-
-Desce do Céu a nova Jerusalém,
-Como esposa adornada ao seu Esposo;
-Não há mais pranto, mar, nem mal, nem desdém,
-Nem sol, porque o Cordeiro é luminoso.
-Corre da cidade o rio do sumo Bem,
-E a árvore da vida dá fruto copioso;
-As nações andam à sua claridade,
-E Deus habita com a humanidade.
-
-**24**
-
-Fecha-se aqui o canto e a longa história:
-Do verbo criador ao túmulo vencido,
-Da queda antiga à consumada glória,
-Tudo se achou em Cristo resumido.
-Se o primeiro jardim perdeu a memória,
-O último a dá por sangue redimido;
-E o Poeta, vendo o fim que ao princípio responde,
-Adora o Deus que salva e em tudo se esconde.
+Fecha-se aqui o canto em clara alegria:
+Do fogo em Sião à cidade sem ocaso,
+A Igreja peregrina, em luta e via,
+Chega por fim ao prometido prazo.
+Se a História toda ao Cristo convergia,
+Nele se cumpre o último regaço;
+E o Poeta, vendo o fim mais belo que a origem,
+Adora o Deus que faz da perda a Virgem.

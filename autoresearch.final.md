@@ -1,10 +1,16 @@
 # Final Report
 
-## Outcome
+## Goal achieved
 
-The 10-canto epic cycle requested in `autoresearch.md` has been completed.
+The epic has been structurally revised into the requested **true in media res architecture**:
+- the poem now opens with **proem + invocation + Annunciation**
+- the Christological center governs the whole
+- the Old Testament retrospective cantos are now framed as sacred recollection and typological rereading in the light of **Emmaus**
+- Tolkien's *On Fairy-Stories* is now treated as a governing imaginative law, especially for wonder, peril, recovery, consolation, and eucatastrophe
 
-Completed files:
+## Revised cantos
+
+All ten cantos are now revised:
 - `canto_I.md`
 - `canto_II.md`
 - `canto_III.md`
@@ -18,22 +24,35 @@ Completed files:
 
 ## Primary metric
 
-- `completed_cantos = 10`
+- `revised_cantos = 10`
 
-## Experiment summary
+## Major structural changes
 
-The loop recovered the missing experiment harness, restored the ideas backlog, pruned stale paths, and then completed the remaining canto sequence:
-- `canto_VII.md`: pragas, Páscoa, Mar Vermelho
-- `canto_VIII.md`: deserto, Sinai, Decálogo, bezerro, tabernáculo
-- `canto_IX.md`: deserto final, Balaão, Nebo, Josué, conquista, juízes, reis, profetas, exílio, retorno
-- `canto_X.md`: encarnação, ministério, paixão, ressurreição, Igreja, Apocalipse
+### Opening
+- The poem no longer opens at Creation.
+- It now opens where promise turns into fulfillment: **the Annunciation**.
 
-## Remaining work
+### Middle hinge
+- `canto_VI.md` makes **Emmaus** the interpretive hinge of the poem.
+- This allows the retrospective cantos to function as rereading rather than restart.
 
-No metric-improving experiment paths remain for the current target, because the requested 10-canto cycle is now complete.
+### Retrospective cantos
+- `canto_VII.md` recasts origins as figures converging toward Christ.
+- `canto_VIII.md` recasts Exodus, Law, wilderness, kingdom, David, and temple as types fulfilled in Christ.
+- `canto_IX.md` recasts prophets, exile, and return as messianic waiting ordered toward Annunciation and Paschal fulfillment.
 
-Possible future work would be revision rather than expansion:
-- tighten the global **in media res** architecture across all cantos
-- strengthen cross-canto foreshadowing and recurring imagery
-- rebalance canto density, especially the later panoramic cantos
-- refine diction toward a more uniformly camoniano register
+### Ending
+- `canto_X.md` now focuses on Pentecost, Church, mission, martyrdom, Apocalypse, final judgment, and New Jerusalem as explicit eucatastrophic consummation.
+
+## Why the backlog is exhausted
+
+No useful revision paths remain for the current target:
+- all 10 cantos have been revised
+- the architectural target has been implemented
+- the backlog ideas have been consumed
+
+Further work would be a new optimization target, not continuation of the current one. Natural future targets could include:
+- line-by-line metrical refinement
+- diction tightening toward a more uniformly Camonian register
+- stronger recurring imagery across cantos
+- selective amplification of speeches and epic similes

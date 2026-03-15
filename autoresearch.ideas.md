@@ -1,2 +1,0 @@
-- Reestruturar `canto_IX.md` como profetas, exílio e espera messiânica, explicitamente orientado para a Anunciação e a Páscoa.
-- Refinar `canto_X.md` para manter Pentecostes, missão, martírio, Apocalipse e Nova Jerusalém como consumação eucatastófica.
