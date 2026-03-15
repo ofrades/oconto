@@ -4,24 +4,24 @@
 
 **1**
 
-Mal se calara o Anjo, e já corria
-Maria pela serra de Judá;
-Leva no seio a Luz que principia,
-E a casa de Zacarias buscará.
-Não vai com pompa a nova Monarquia,
-Nem carro algum a Virgem guiará;
-Vai só, mas leva em sua formosura
+Mal se calou do Anjo a voz dourada,
+Parte Maria à serra de Judá;
+Leva no seio a Luz da madrugada,
+E à casa de Zacarias subirá.
+Não vai em carro, púrpura ou espada,
+Mas pobre, como a graça ao mundo vai;
+E leva, em seu silêncio e formosura,
 A visita de Deus à criatura.
 
 **2**
 
-Entra e saúda Isabel; no mesmo intento,
-Salta o menino no materno abrigo;
-Sente João, no escuro movimento,
-Que já chegara o mais antigo Amigo.
-Enche-se a mãe de sobrenatural alento,
+Mal ouve Isabel a saudação,
+Salta-lhe o filho em maternal abrigo;
+Sente no escuro o santo coração,
+Que já lhe chega o mais antigo Amigo.
+Enche-se a mãe de alta revelação,
 E rompe em voz que traz do Céu consigo:
-“Bendita és tu entre as mulheres todas,
+“Bendita és tu entre mulheres todas,
 E bendito o Fruto que acomodas.”
 
 **3**
@@ -29,42 +29,42 @@ E bendito o Fruto que acomodas.”
 “Donde me vem que a Mãe do meu Senhor
 Visite assim minha pobreza fria?
 Ao som da tua voz e do teu ardor,
-Meu filho salta em santa alegria.
-Bem-aventurada és; em teu favor,
-Cumpriu Deus quanto a fé de ti cria.”
-Assim a antiga Lei, em viva tarde,
+Meu filho exulta em santa alegria.
+Bem-aventurada és, que tal favor
+De Deus em teu crer simples se confia.”
+Assim a antiga Lei, na extrema tarde,
 Saúda a nova Luz que já lhe arde.
 
 **4**
 
-Então responde a Virgem: “A alta Alteza
-Meu Deus engrandece em santo ardor;
-Olhou de sua escrava a vil baixeza,
-E fez do barro espelho de favor.
-Trocou serviço em canto e fortaleza,
-E sobre o humilde derramou amor;
-Derriba tronos, quebra o vão espanto,
-E aos pobres abre o seu real encanto.
+Então responde a Virgem em brandura:
+“Minha alma engrandece ao sumo Senhor;
+Olhou sua escrava humilde e baixa e escura,
+E a encheu de glória, graça e resplendor.
+Mostrou no fraco a sua força pura,
+Mudou em canto o velho dissabor;
+Abate o vão, exalta o peito aflito,
+E lembra-se da aliança em seu conflito.
 
 **5**
 
 Enche de bens famintos corações,
-E deixa os ricos em jejum vazio;
-Lembra-se de Israel e dos varões
-A quem jurou por Abraão santo desvio.
+E deixa o rico em mísera fraqueza;
 Cumpre o que disse às velhas gerações,
-E muda em graça o nosso antigo fio.”
-E a casa inteira, ao som de tal louvor,
-Arde em tremor, em júbilo e fervor.
+Mostrando em tudo a eterna fortaleza.
+Lembra-se de Israel e dos varões,
+A quem jurou por Abraão tal grandeza.”
+E a casa inteira, em júbilo e tremor,
+Arde ao mesmo tempo em paz e em fervor.
 
 **6**
 
 Mas longe, em Nazaré, José receia
-O peso do mistério surpreendente;
-Vê na desposa um sinal que o alheia,
-E cala a dor em peito obediente.
-Mas o Anjo, em sonhos, toda a sombra arreia,
-E diz-lhe o Céu o caso transcendente:
+O peso do mistério impenetrado;
+Vê na desposa o sinal que o alheia,
+E cala a dor no peito atribulado.
+Porém o Anjo em sonho lhe clareia
+O que trazia o pensamento turbado:
 “Recebe a Virgem; o que nela é vida,
 Do Santo Espírito foi concebida.”
 
@@ -75,20 +75,20 @@ Faz da obediência o seu melhor tesouro;
 Não busca prova mais, nem novo pleito,
 Mas rende a Deus o vacilante foro.
 Assim aprende o justo, em seu conceito,
-Que mais vale crer no Céu que o vão agouro;
+Que mais vale o Céu que o humano agouro;
 E a casa humilde, sob tão alto mando,
 Vai no silêncio a Redenção guardando.
 
 **8**
 
-Sai de César ao mundo a ordenança,
+Sai de César ao mundo a lei tirana,
 E move cada casa ao seu roteiro;
-Sobe José, guardando a antiga herança,
+Sobe José, da estirpe soberana,
 À velha Belém do tronco verdadeiro.
-Leva Maria, em cujo seio avança,
-O Rei do Céu, já pobre caminheiro;
-Sem vê-lo, o mundo ao sumo Bem se move,
-E ao mando eterno, sem sabê-lo, chove.
+Leva Maria, em cuja carne humana
+Já vai o Rei do Céu, pobre viageiro;
+Sem vê-lo, o mundo ao sumo Bem se inclina,
+E serve ao alto Império que o domina.
 
 **9**
 
@@ -97,31 +97,31 @@ Não acham pouso digno ao santo parto;
 Fecha-se a porta ao Rei de céu e areia,
 E ao Criador se nega humano quarto.
 Num pobre abrigo, entre a palha alheia,
-Maria sente abrir-se o desamparo;
+Maria sente abrir-se o tempo exato;
 E nasce em carne frágil, pobre e bela,
 O mesmo Sol que acende a clara estrela.
 
 **10**
 
-Não rompe o Infante em púrpura e aparato,
+Não nasce o Infante em púrpura ou decoro,
 Mas em silêncio humilde e desarmado;
-Envolve-o a Mãe, e o feno lhe dá trato,
+Faz-se-lhe o feno cama, o frio, ouro,
 E o seio humano abriga o Incriado.
-O boi, a palha, a noite e o pobre estrado,
-Fazem-se paço ao Rei há tanto aguardado;
-E o mundo, que buscava alto decoro,
-Tem sua glória em pobreza e ouro.
+O boi, a noite, a gruta e o vil tesouro
+Fazem-se paço ao Rei tão desejado;
+E o mundo, que buscava antigo brilho,
+Tem sua glória em Deus tornado Filho.
 
 **11**
 
 Guardavam pastores a vigia fria,
-Quando a luz do Senhor lhes cai de cima;
+Quando a luz do Senhor desceu do alto;
 Tremem de medo ante a celeste via,
-Mas o Anjo em paz lhes fala e os anima:
+Mas o Anjo lhes desfaz tamanho assalto:
 “Nasceu-vos hoje o Salvador e Guia,
-Na cidade de David, glória acima;
-Correi: vereis, em pobres eiros humanos,
-O Rei envolto em desvalidos panos.”
+Na cidade de David, lume alto;
+Vereis o Rei em pobres panos posto,
+Onde o animal se abriga ao frio e agosto.”
 
 **12**
 
@@ -130,18 +130,18 @@ Milícia do alto em jubilosa chama:
 “Glória a Deus nas alturas” — rompe o ouro
 Do som celeste sobre a escura trama —
 “E paz na terra” — em mais suave foro —
-“Aos homens que o favor divino ama.”
+“Aos homens a quem seu favor mais ama.”
 Correm os pastores, veem, e maravilhados,
 Saem louvando os céus recém-rasgados.
 
 **13**
 
-Guarda Maria em coração constante,
+Guarda Maria em coração constante
 As vozes, o presépio e o novo lume;
 Ao templo sobe o santo e novo Infante,
 Com pobre oferta e peregrino costume.
 Toma-o Simeão, velho vigilante,
-E em paz o reconhece e o assume;
+E em paz o reconhece e o seu nome assume;
 Mas volta-se à Mãe, e em sombra aguda,
 Lhe mostra a espada que o futuro muda.
 
@@ -151,51 +151,29 @@ Também Ana, de espírito ardente,
 Louva a Deus e anuncia a Redenção;
 Vê no Menino o prometido Oriente,
 E no seu rosto a glória de Sião.
-Assombra-se o templo, e a velhice sente
+Assombra-se o templo; a velhice sente
 Que já desceu ao pó a salvação;
 Mas nem por isso Herodes dorme ou ama,
-Pois contra a luz se acende a antiga chama.
+Pois contra a Luz se acende a antiga chama.
 
 **15**
 
-Longe, porém, atentos ao firmamento,
+Longe, porém, atentos ao alto giro,
 Veem Magos novo lume forasteiro;
-Deixam palácio, carta e pensamento,
+Deixam palácio, estudo e vão delírio,
 E seguem-no por ermo e nevoeiro.
-Chegam a Herodes, que traz falso intento,
-De piedade por fora e fel inteiro;
-Busca por culto o que no peito vira,
-Mas arma no íntimo a tirana ira.
+Chegam, prostrados, ao divino Empíreo
+Escondido em menino verdadeiro;
+Dão ouro, mirra e incenso à Majestade,
+Que veste a carne e oculta a eternidade.
 
 **16**
 
-Chegados ao lugar, caem reverentes,
-E veem o Rei sob baixa cobertura;
-Depõem-lhe aos pés, com ânimos ardentes,
-Ouro, mirra e incenso em ternura.
-Reconhecem, por luzes diligentes,
-Majestade escondida em carne pura;
-E a ciência, quando adora e se abona,
-Depõe aos pés de Deus a sua coroa.
-
-**17**
-
-Avisados em sonho, por diverso lado,
+Avisados em sonho, por diversa estrada,
 Voltam os Magos, sem falar ao rei;
-Também José recebe o mesmo fado,
-E leva ao Egito o grande Rei.
-Chora Raquel o sangue derramado,
-Enquanto Herodes dobra a escura lei;
-Mas a crueldade, em sua força cega,
-Só move a mão de Deus que mais navega.
-
-**18**
-
-Assim prossegue a vinda verdadeira,
-Entre cântico, estrela, espada e fuga;
-Vai Deus curando a chaga mais primeira,
-E a própria glória com a dor conjuga.
-O Egito, outrora casa cativeira,
-Abriga agora a Luz que o mundo aluga;
-E o canto aprende, vendo o Filho em via,
-Que a graça entra no tempo em agonia.
+Foge José com a Família sagrada,
+Enquanto Herodes dobra a escura lei.
+Assim prossegue a vinda desejada,
+Entre esplendor, espada e amarga grei;
+E o canto aprende, vendo o Filho em fuga,
+Que a glória entra na História pela ruga.

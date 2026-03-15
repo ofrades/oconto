@@ -1,3 +1,3 @@
-- Auditar `canto_I.md` linha por linha para aproximar o decassílabo heroico camoniano, corrigindo versos claramente frouxos ou longos sem perder a arquitetura já consolidada.
-- Depois repetir o mesmo processo em `canto_II.md`–`canto_X.md`, um canto por vez.
+- Auditar `canto_III.md` linha por linha para aproximar o decassílabo heroico camoniano, corrigindo versos frouxos ou longos sem perder a arquitetura já consolidada.
+- Depois repetir o mesmo processo em `canto_IV.md`–`canto_X.md`, um canto por vez.
 - Onde útil, substituir construções modernas por soluções mais compactas e clássicas de sabor camoniano/vieiriano para melhorar contagem e música.
