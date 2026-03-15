@@ -1,0 +1,3 @@
+- Reescrever `canto_I.md` em oitava-rima camoniana mais nítida, com rimas ABABABCC audíveis e fecho forte em cada estrofe.
+- Trazer, onde útil, léxico mais grave e barroco, compatível com Camões e reforçado por Vieira.
+- Depois passar a `canto_II.md`–`canto_X.md`, um canto por vez, mantendo a arquitetura já corrigida mas depurando rima, cadência e fecho.
