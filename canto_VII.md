@@ -4,220 +4,176 @@
 
 **1**
 
-Depois da Lei, do reino e do santuário,
-Abre-se a noite dos profetas e do exílio;
-Mas não é noite vã, sem comentário:
-Nela arde ainda o prometido auxílio.
-A glória, em vez de firme relicário,
-Parece ceder lugar ao aço hostil;
-Mas no escuro a esperança mais vigia,
+Depois da Lei, do Templo e do reinado,
+Abre-se a noite dos profetas graves;
+Parece o lume antigo aniquilado,
+E as santas harpas mudam-se em entraves.
+Mas quanto o século se mostra alçado,
+Mais Deus acende as vozes que são chaves;
+No escuro mesmo a graça se vigia,
 Como lâmpada pobre antes do dia.
 
 **2**
 
-Divide-se o reino após Salomão,
-E a pompa exterior se parte em duas;
-Efraim e Judá, sem um só coração,
-Seguem por montes, bezerros e ruas.
-Faz-se política da religião,
-E a aliança se vende a mãos cruas;
-Mas Deus não deixa, em meio à apostasia,
-De acender no escuro a sua profecia.
+Divide-se o alto Reino em dois pedaços,
+E a pompa exterior se faz ruína;
+Efraim e Judá, por torpes passos,
+Trocam por ídolos a lei divina.
+Mistura-se o altar com braços baços,
+E a política usurpa a disciplina;
+Mas Deus, em meio à pública apostasia,
+Não deixa sem clarão a profecia.
 
 **3**
 
-Surge Elias, como fogo em veste rude,
+Surge Elias, de fogo coroado,
 Contra reis e altares mentirosos;
-Fecha os céus, abre-os depois, e o povo ilude
-Menos que o profeta aos ídolos pomposos.
-No Carmelo mostra a santa plenitude
-Do Deus vivo ante os baais enganadores;
-E em Horeb, na voz mansa e delicada,
-Aprende que a força de Deus é mais velada.
+Fecha o céu, mostra o baal envergonhado,
+E humilha os sacrifícios pomposos.
+No Carmelo se vê desmascarado
+O culto vão dos deuses enganosos;
+Depois, no Horeb, pela voz sombria,
+Aprende que Deus vence sem porfia.
 
 **4**
 
-Vem Eliseu, em dupla porção de espírito,
-Com óleo, pão e cura entre os pequenos;
-Purifica a fonte, multiplica o trigo,
-Ressuscita o filho e sara os enfermos.
-Assim, em sinais de graça e benefício,
-Deus mostra ao povo, em seus caminhos ermos,
-Que não quer só ferir por disciplina,
-Mas restaurar a pobre raça arruinada.
+Vem Eliseu, em graça duplicado,
+Com óleo, pão e cura aos mais pequenos;
+Purifica a fonte, o mal cegado,
+E faz do pouco mantimento ameno.
+Ressurge o filho ao leito já gelado,
+Sarando-se os enfermos e os terrenos;
+Mostra Deus, em tais obras de brandura,
+Que sua ira mesma busca a cura.
 
 **5**
 
-Levantam-se então vozes mais severas:
+Levantam-se depois vozes severas,
 Amós, Oséias, Miqueias, Joel;
-Denunciam luxo, fraude e primaveras
-De culto sem justiça ante Israel.
-Não basta o sacrifício, as festas e bandeiras,
-Se o órfão jaz sem pão e o pobre sem papel;
-Quer Deus misericórdia e conhecimento,
-Mais que gordura vã em altar sangrento.
+Não sofrem culto falso e primaveras
+De luxo vil, sem órfão, justo ou mel.
+Bradam contra opressões, torpezas feras,
+Que afrontam, com incenso, a lei fiel;
+Quer Deus misericórdia conhecida,
+Mais que gordura morta e vã comida.
 
 **6**
 
-Isaías vê o Senhor em alta glória,
-Com serafins cobrindo face e voo;
-Sente-se impuro, e o carvão da santa história
-Lhe toca os lábios para o duro enjoo.
-Canta depois o Ramo, a Virgem e a vitória,
-O Servo sofredor, manso e tão bom,
-Que levará sobre si nossa ferida,
-E dará pela morte ao mundo vida.
+Isaías contempla o Senhor armado
+De serafins, de glória e majestade;
+Toca-lhe os lábios o carvão sagrado,
+E o peito arde em profética verdade.
+Canta o Ramo, o Menino anunciado,
+A Virgem, o Emmanuel, a claridade;
+E o Servo que, por chaga padecida,
+Tomará sobre si a nossa vida.
 
 **7**
 
-Jeremias chora a cidade impenitente,
-Leva no peito o peso de seu povo;
-Vê vir do norte o açoite diligente,
-E anuncia aliança em molde novo.
-Não mais só em pedra, exterior e patente,
-Mas no mais íntimo do coração renovo;
-E essa promessa, em lágrimas escrita,
-Já busca o dia em que a graça habita.
+Jeremias, em lágrimas banhado,
+Leva no peito o peso da cidade;
+Vê vir do Norte o aço castigado,
+E clama contra a dura iniquidade.
+Mas promete também concerto amado,
+Não só em pedra, externa santidade,
+Mas no mais íntimo do entendimento,
+Escrito em coração e pensamento.
 
 **8**
 
-Mas Samaria cai sob mão assíria,
-Porque trocou o Santo por vaidade;
-Desce a cidade ao pó, e a ímpia Síria
-Leva dispersa a sua identidade.
-Judá, em vez de temer igual martírio,
-Imita o mal e abraça a iniquidade;
-Até que Babilónia, em roxa fúria,
-Sobe contra Sião com longa injúria.
+Cai Samaria, enfim, por seu pecado,
+E Assur espalha ao vento a sua gente;
+Judá, em vez de temer tal duro fado,
+Imita o mal com ânimo imprudente.
+Sobe Babel, em roxo levantado,
+Contra Sião, soberba e inclemente;
+E a glória antiga, em cinza abatida,
+Parece dar por finda a prometida vida.
 
 **9**
 
-Arde o templo, quebra-se o muro,
-Cala-se a harpa junto ao altar caído;
-Vai o povo em choro escuro,
-Com o santo nome em terra alheia ido.
-Parece que o pacto, outrora seguro,
-Ficou no pó de vez desmentido;
-Mas mesmo em cinza, pelo Céu mantida,
-Segue a promessa mais funda que a ferida.
+Arde o Templo, e o santo povo cativo
+Pende as harpas junto aos canais da dor;
+Parece o pacto já sem ser ativo,
+Parece morto o oráculo do amor.
+Mas no desterro Deus se mostra vivo,
+Não menos Rei por ver-se sem fulgor;
+E mesmo em cinza a antiga herança fria,
+Respira ainda secreta profecia.
 
 **10**
 
-Junto aos canais penduram-se os instrumentos,
-E Sião se lembra entre suspiros e água;
-Mas Ezequiel vê carros e movimentos
-Da Glória que não cabe em pedra frágil.
-Mostra-lhe Deus ossadas sem alentos,
-Que recebem nervo, pele e sopro ágil;
-E a visão, em vale de desolação,
-Profetiza renovo e reunião.
+Ezequiel vê carros abrasados,
+A Glória móvel sobre o cativeiro;
+Mostram-se os ossos secos ajuntados,
+Tomando nervo, pele e novo inteiro.
+Daniel, entre leões e reis turbados,
+Vê reinos como feras no sendeiro;
+E ao Filho do Homem vê glorificado,
+Receber o domínio eternizado.
 
 **11**
 
-Daniel serve em corte estrangeira,
-Mas não curva a alma ao ouro nem ao medo;
-No forno anda incólume a sua maneira,
-Entre leões mantém o santo enredo.
-Vê reinos como feras na poeira,
-E um Filho do Homem recebendo o cetro;
-Assim, sob impérios de unha e espada,
-Brilha a futura realeza anunciada.
+Volta um resto a Sião, já quebrantado,
+Por mão de Ciro a porta desatada;
+Levanta altar, refaz o muro usado,
+Mas não descende a paz consumada.
+Ageu desperta o zelo retardado,
+Zacarias vê o rei de entrada branda;
+E o povo, entre fadiga e piedade,
+Serve e espera maior felicidade.
 
 **12**
 
-Volta um remanescente à terra antiga,
-Por boca de Ciro aberta a porta dura;
-Levanta altar, reedifica e castiga
-A frouxidão que à esperança mistura.
-Ageu e Zacarias reatam a fadiga,
-Mostrando ao povo a próxima ventura;
-Mas embora o templo torne a erguer-se ao chão,
-Não desce ainda a plena consolação.
+Esdras lê a Lei ao povo comovido,
+Neemias cerca os muros derrubados;
+Reata-se o culto, o sábado e o ouvido,
+Mas ficam os corações mal sarados.
+Tem-se o recinto santo reerguido,
+Sem os séculos, porém, reconciliados;
+Persiste no retorno uma agonia,
+Como alvor prestes a romper o dia.
 
 **13**
 
-Esdras lê a Lei a um povo comovido,
-Neemias cerca os muros derrubados;
-Reata-se o culto, o sábado e o ouvido,
-Mas ficam os corações ainda cansados.
-Tem-se a cidade e o centro reconstruído,
-Porém não os séculos reconciliados;
-Persiste no retorno uma demora,
-Como vigília à beira de outra aurora.
+Adensa-se a esperança do Ungido,
+Quanto mais tarda o prometido Herdeiro;
+Em David busca-se o sem-par nascido,
+Em Belém o Pastor, no Templo o Lume inteiro.
+Malaquias anuncia o Prevenido,
+Que irá diante do Senhor verdadeiro;
+Toda a Escritura, em silêncio espesso,
+Inclina-se ao Mistério do começo.
 
 **14**
-
-Pois a espera messiânica se adensa
-Quanto mais tarda o Prometido Rei;
-Lê-se David, e a alma já pensa
-Num Filho sem pecado e sem revés.
-Lê-se Isaías, e a virgem imensa
-Paira sobre Belém e sobre a grei;
-Lê-se o Servo que leva a culpa alheia,
-Sem que se entenda ainda a funda ideia.
-
-**15**
-
-Lê-se Miqueias e se mira a aldeia
-Pequena donde sairá o Pastor;
-Lê-se Zacarias e se vê a cadeia
-Do rei humilde em jumento sem furor.
-Lê-se Malaquias, e a esperança semeia
-Um mensageiro antes do maior Senhor;
-E toda a Escritura, em seu silêncio espesso,
-Se inclina ao quarto pobre de um começo.
-
-**16**
 
 Por isso o exílio não é só castigo,
 Nem o retorno simples reparação;
 É a cava funda em que o desígnio antigo
-Prepara à graça mais humilde encarnação.
-Quando a cidade perde templo e abrigo,
-Aprende a esperar salvação não de mão
-Humana, mas de Deus que vem de cima
-Entrar na história sem clamor nem rima.
+Prepara à graça nova encarnação.
+Quando se perde o muro, o altar, o abrigo,
+Aprende a alma a esperar salvação
+Não da política, do braço ou fama,
+Mas do Deus vivo que do alto chama.
 
-**17**
+**15**
 
-Também a dor dos profetas e seus ais,
-Sua insistência em sangue e nova aliança,
-A fome de justiça, o Servo e seus sinais,
-Tudo adensa o futuro da esperança.
-Não cabe ainda a cura nesses dias tais,
-Mas já se escava o poço da bonança;
-Porque a salvação, antes de ser florida,
-Passa por longa sede e noite ferida.
+Também os ais dos santos e varões,
+O Servo, a Virgem, o Rei e a Aliança,
+Acrescentam ao século razões,
+Para esperar com mais faminta esperança.
+Ainda não se rasgam os grilhões,
+Nem se converte o luto em segurança;
+Convém que a noite chegue a seu extremo,
+Para nascer mais alto o Sol supremo.
 
-**18**
+**16**
 
-Assim, quando no canto a Virgem surja,
-Não virá como flor sem longa raiz;
-Traz sobre si a espera que se urge,
-O pranto antigo e o oráculo feliz.
-E quando ao fim a Cruz o mundo purga,
-Cumpre-se também o Servo, o Rei e o Juiz;
-Toda profecia, em sua noite dura,
-Achega-se ao seu corpo e sepultura.
-
-**19**
-
-Mas ainda aqui o épico não resolve
-A dor em pleno júbilo e vitória;
-A luz apenas no horizonte envolve
-A treva espessa da presente história.
-Convém que a espera, em seu silêncio, prove
-Quão fundo pesa a queda na memória;
-Para que, vindo o giro derradeiro,
-Mais assombre o seu clarão verdadeiro.
-
-**20**
-
-Feche-se o canto com as lâmpadas acesas
-Da vigília entre ruínas e promessas;
-O povo aguarda, entre jejuns e mesas,
-O Rei, o Servo, o Filho e suas peças.
-E nós, ouvindo ao longe tais tristezas,
-Sabemos que não são sombras dispersas,
-Mas a longa respiração da aurora,
-Que em fim virá, mas ainda não aflora.
+Feche-se o canto entre ruínas e orações,
+Com lâmpadas acesas na vigília;
+O povo aguarda, entre jejuns e aflições,
+O Rei, o Servo, a Paz, a maravilha.
+E nós ouvimos, sob tais escuridões,
+Respirar já a futura maravilha;
+Que toda a profecia, em dor madura,
+Inclina-se à vindoura formosura.
