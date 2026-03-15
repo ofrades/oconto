@@ -2,21 +2,17 @@
 
 ## Goal achieved
 
-The current target — a canto-by-canto **decasyllabic scansion tightening pass** over the already corrected architecture — has been carried through all 10 cantos.
+The current target — a stricter **tool-assisted metrical audit** over the 10 cantos — has been carried through all cantos.
 
-The poem now keeps:
-- the corrected macro-architecture already established
-- the Camonian ottava-rima pass already established
-- an additional pass aimed at **shorter, tighter, more decasyllabic lines**
-- diction that trends more strongly toward compact classical phrasing
+This pass went beyond the broader scansion-tightening pass by explicitly using a repeatable helper (`meter_audit.py`) to flag suspicious lines before rewriting.
 
 ## Primary metric
 
-- `scanned_cantos = 10`
+- `meter_audited_cantos = 10`
 
-## Completed scansion pass
+## Completed meter-audit pass
 
-All ten cantos now belong to the scansion-focused pass:
+All ten cantos now belong to this explicit metrical-audit pass:
 - `canto_I.md`
 - `canto_II.md`
 - `canto_III.md`
@@ -30,29 +26,34 @@ All ten cantos now belong to the scansion-focused pass:
 
 ## What changed in this pass
 
-### Line tightening
-- many lines were shortened or syntactically compressed
-- modern or loose constructions were reduced where possible
-- turns of phrase were made more compact and more compatible with heroic decasyllabic cadence
+### Tool-assisted review
+- `meter_audit.py` was added to flag lines with suspicious syllabic density
+- cantos were then rewritten with more compact, less prose-like syntax
+- lines tended further toward a stricter heroic decasyllabic feel
 
-### Structural preservation
-This pass preserved the macro-architecture already fixed earlier:
-1. Annunciation opening
-2. retrospective sacred history in the middle
-3. Cross in the penultimate movement
-4. Resurrectional eucatastrophe in the final canto
+### Preservation of prior gains
+This pass preserved:
+- the corrected macro-architecture
+- the Camonian ottava-rima pass
+- the previous scansion-tightening pass
+
+### Current stack of revisions
+1. structural correction pass
+2. Camonian-form pass
+3. scansion-tightening pass
+4. explicit meter-audit pass
 
 ## Why the backlog is exhausted
 
 No useful backlog remains for this target:
-- every canto has passed through the scansion-focused rewrite
-- the line-tightening pass is complete across all 10 cantos
+- all ten cantos have now passed through the explicit meter-audit stage
 - `autoresearch.ideas.md` has been exhausted
 
 ## Natural future targets
 
-Any further work would be a new target, for example:
-- a true **line-by-line metrical audit with explicit syllable counting and caesura checks**
-- a dedicated **rhyme audit** for every stanza
-- a **Vieira diction enrichment pass** distinct from the scansion pass
-- a final literary polish pass focused on similes, speeches, and transitions
+Any further work would be a new optimization target, such as:
+- a **true manual syllable-by-syllable scansion commentary** canto by canto
+- a **caesura audit** line by line
+- a dedicated **rhyme audit** of every stanza
+- a distinct **Vieira diction enrichment** pass
+- a final literary polish pass for similes, speeches, and transitions

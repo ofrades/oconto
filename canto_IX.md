@@ -28,7 +28,7 @@ Que vence o Maior servindo ao menor.
 
 Toma depois o pão nas mãos divinas,
 Bendiz, reparte, e dá-o à companhia:
-“Tomai e comei; estas são medicinas,
+“Tomai e comei; estas medicinas,
 Meu Corpo dado em vossa companhia.”
 Toma o cálice, e as almas mais inclinas
 Sentem o peso da alta profecia;
@@ -54,19 +54,19 @@ Dá ainda ao traidor doce cortesia,
 Sem diminuir a santa fortaleza.
 Sai ele à rua; e mais se fecha o dia
 Do ar noturno em sua vil baixeza.
-Era noite — e no breu do coração vendido,
+Era noite — e no breu do peito vendido,
 Entrava o antigo Príncipe enfurecido.
 
 **6**
 
 Fala Jesus do amor por lei mais nova,
 Da videira e dos ramos em seu ser,
-Do ódio do mundo, e da paz que aprova
+Do ódio do mundo, e da paz que prova
 Somente quem nele quiser viver.
 Promete o Espírito, que assiste e prova,
 Há de lembrar, ensinar e defender;
 E eleva ao Pai a sacerdotal voz,
-Guardando em prece o pequeno rebanho e nós.
+Guardando em prece o rebanho e nós.
 
 **7**
 
@@ -162,7 +162,7 @@ Rasga-se o véu; treme a terra e o templo;
 O centurião confessa o Rei verdadeiro.
 Do lado aberto corre duplo exemplo:
 Sangue e água ao mundo prisioneiro.
-Mas não se rompe ainda o escuro templo
+Mas não se rompe inda o escuro templo
 Da noite em que parece o mal inteiro;
 Convém que a dor desça a seu extremo,
 Para subir mais alto o Sol supremo.

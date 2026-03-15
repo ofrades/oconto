@@ -1,3 +1,0 @@
-- Auditar `canto_I.md` com `meter_audit.py`, corrigindo os versos mais frouxos e depois marcá-lo como o primeiro canto desta passada de auditoria explícita.
-- Depois repetir o mesmo processo em `canto_II.md`–`canto_X.md`, um canto por vez.
-- Onde útil, substituir construções frouxas por soluções mais compactas e clássicas de sabor camoniano/vieiriano para melhorar contagem, cesura e música.

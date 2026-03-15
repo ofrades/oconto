@@ -83,7 +83,7 @@ Na Escritura e no pão já descoberto.
 
 Voltam de noite, e o coração lhes arde,
 Mais leve que o primeiro desespero;
-Acham os Onze em seu temor covarde,
+Acham os Onze em seu temor cobarde,
 E contam o caminho verdadeiro.
 Põe-se Jesus no meio e, manso, guarde
 A grei medrosa em rosto verdadeiro;

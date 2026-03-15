@@ -17,7 +17,7 @@ Se move a noite em mais severo trato.
 
 Vem o Senhor de Betânia à colina,
 Sabendo quanto custa tal subida;
-Não busca o carro, a púrpura assassina,
+Não busca o carro, a púrpura homicida,
 Nem quer vencer por força presumida.
 Escolhe humilde jumento, e assim ensina
 Que outra é sua realza prometida;
@@ -28,10 +28,10 @@ Que vence o mundo sem guerreiro avanço.
 
 Estende a turba as vestes e as ramadas,
 E “Hosana” ao Filho de David entoa;
-Mas vêm mescladas ânsias desvairadas,
+Mas vão mescladas ânsias desvairadas,
 Com a verdade que do alto se coroa.
 Uns querem armas, triunfos e jornadas,
-Outros apenas graça que perdoa;
+Outros só graça que perdoa;
 E o mesmo aplauso, que lhe rende festa,
 Já leva em si a mutação funesta.
 
@@ -42,7 +42,7 @@ Que não conhece o tempo da visita;
 Tem muro, culto, lâmpada acendida,
 Mas o coração ao seu Deus evita.
 Vê já de longe a pedra consumida,
-O Templo em pó, a glória derrocada e aflita;
+O Templo em pó, a glória em dor contrita;
 Pois toda paz negada em seu começo,
 Volta depois em juízo mais espesso.
 
@@ -62,7 +62,7 @@ Concebem contra Ele trama avara.
 Fala da vinha, dos servis homicidas,
 E do Filho lançado por herança;
 Mostra que as pedras, antes repelidas,
-Serão cabeça firme de esperança.
+Serão cabeça firme da esperança.
 Perguntam-lhe do censo e das medidas,
 Mas toda astúcia cai sem temperança;
 Dai a César o selo e o vil metal,
@@ -70,8 +70,8 @@ E a Deus o homem, imagem principal.
 
 **7**
 
-Tornam depois à rede de argumento,
-Do maior preceito e da futura vida;
+Tornam depois às redes do argumento,
+Do maior mandamento e da outra vida;
 Querem prendê-lo em torpe entendimento,
 Mas sai-lhes vã a astúcia presumida.
 Responde o Mestre com tão justo acento,
@@ -95,7 +95,7 @@ Mais se adensa o rancor e o negro fluxo.
 No monte das Oliveiras, contemplando
 A cidade, o Templo e a idade vã,
 Fala de guerras, fraudes, vigiando
-A fé que deve ficar firme e sã.
+A fé que deve conservar-se sã.
 Não cessa o século, em tumulto brando,
 De perseguir a verdade soberã;
 Mas bem-avento é quem, em noite escura,
@@ -119,7 +119,7 @@ Prenúncio doce e grave de mortuário;
 Enquanto Judas pesa em cálculo escuro
 O amor gratuito em preço mercenário.
 Cheira a casa inteira a futuro duro,
-Mas também a um mais régio funerário;
+Mas também a mais régio funerário;
 Porque o amor, que vê mais longamente,
 Unge o Senhor para o sepulcro ausente.
 
@@ -127,10 +127,10 @@ Unge o Senhor para o sepulcro ausente.
 
 Já se combina em conselho escondido
 A perda do Justo sob capa de prudência;
-Dizem que um só pereça, e fique o povo erguido,
-Sem ver no cálculo a secreta Providência.
+Dizem que um só pereça, e fique erguido
+O povo, sem notar a Providência.
 Falam por arte e zelo mal medido,
-Mas Deus lhes torce a língua em outra ciência;
+Mas Deus lhes torce a língua em nova ciência;
 Que um morra, sim, não por tirana prova,
 Mas por dar ao universo vida nova.
 
@@ -139,9 +139,9 @@ Mas por dar ao universo vida nova.
 Vai Judas pouco a pouco à sombra alheia,
 Abrindo o peito à cobra do contrato;
 Troca o Amigo por misérrima moeda,
-Como outrora José por vil recato.
+Como José por vil e estranho trato.
 Mas onde o homem vende e o Inferno enleia
-Seu velho logro em transação e trato,
+Seu velho logro em transação e pacto,
 Deus faz do mal, sem lhe tirar negrura,
 A porta mesma da maior ventura.
 
@@ -154,7 +154,7 @@ A vaidade, o amor, a dúvida e a estima.
 Não mostra ainda a mesa em que se assina
 O novo pacto em sangue lá por cima;
 Mas cresce em torno o ar da hora extrema,
-Como mar que prenuncia a mais dura gema.
+Como mar que prenuncia a dura gema.
 
 **15**
 
@@ -173,7 +173,7 @@ Feche-se o canto à porta da alta Ceia,
 Com Judas já na sombra e o nardo no ar;
 O Rei entrou na Cidade, e a trama alheia
 Julga cercá-lo, sem poder mandá-lo ou guiar.
-Mas ainda a vitória ao fundo se enleia,
+Mas inda a vitória ao fundo se enleia,
 Oculta sob a noite que há de entrar;
 E o épico recolhe a sua voz inteira,
 Para que a Cruz rebente na outra beira.
