@@ -1,5 +1,4 @@
-- Revisar `canto_IV.md` para o Reino em combate: parábolas, oposição crescente, Tabor, Lázaro e caminho para Jerusalém.
-- Revisar `canto_V.md` para a verdadeira Páscoa: entrada em Jerusalém, ceia, Getsêmani, julgamentos e cruz.
-- Revisar `canto_VI.md` para ressurreição, Emaús, Tomé e Ascensão, fazendo de Emaús a dobradiça para os cantos retrospectivos.
-- Reestruturar `canto_VII.md`–`canto_IX.md` como memória sagrada e releitura tipológica do Antigo Testamento à luz de Cristo, não como reinício cronológico plano.
+- Reestruturar `canto_VII.md` como livro das origens lembrado em chave de Emaús: criação, queda, Abel, dilúvio, Babel, Abraão, Isaac, Jacó e José como figuras que convergem para Cristo.
+- Reestruturar `canto_VIII.md` como Lei, êxodo, deserto e reino à luz do Ressuscitado, evitando reinício cronológico plano.
+- Reestruturar `canto_IX.md` como profetas, exílio e espera messiânica, explicitamente orientado para a Anunciação e a Páscoa.
 - Refinar `canto_X.md` para manter Pentecostes, missão, martírio, Apocalipse e Nova Jerusalém como consumação eucatastófica.

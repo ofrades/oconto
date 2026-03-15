@@ -4,220 +4,220 @@
 
 **1**
 
-Já volta Moisés ao soberbo paço,
-E Aarão lhe serve a voz diante do trono;
-Não vão com ferro, nem com forte braço,
-Mas co’a palavra do Senhor por dono.
-Faraó ri do aviso e da ameaça,
-Como se ao barro fosse eterno o sono;
-Porém Deus, que o levanta e humilha a seu tempo,
-Faz do rei duro espelho do seu juízo.
+Ardendo ainda em Emaús o peito,
+Volta o Poeta ao livro das origens;
+Não como quem recomeça o antigo feito,
+Mas como quem do Cordeiro lê as margens.
+O Ressuscitado abriu o fundo e o jeito
+Das velhas sombras, tipos e passagens;
+E agora o Gênesis, à sua luz revisto,
+Mostra o primeiro mundo já pedindo Cristo.
 
 **2**
 
-Primeiro o Nilo, glória do Egito,
-Sente a vara tocar-lhe a veia antiga;
-Torna-se sangue o seu licor bendito,
-Morre-lhe o peixe, e toda a margem briga.
-O rio, antes fecundo e soberano,
-Cheira a juízo, e a sede o povo afliga;
-Mas o rei fecha o coração cativo,
-Como se fosse o próprio rio vivo.
+No princípio falou o Verbo eterno,
+E o nada ouviu a ordem soberana;
+Da treva fez-se o dia, e do caos sem governo
+Brota a medida, a flor, a luz ufana.
+Nasce o mar, o firmamento claro e terno,
+A ave, o peixe, a fera e a seara humana;
+E tudo era bom, porque da Mão divina
+Saía o ser em paz, beleza e rima.
 
 **3**
 
-Sobem depois as rãs em marulhada,
-Enchem os leitos, fornos e celeiros;
-Vêm logo os mosquitos de pó gerada,
-E as moscas toldam campos e candeeiros.
-Gosém, porém, jaz limpa e separada,
-Como jardim guardado entre ruínas;
-E aprende o Egito, ainda que não consinta,
-Que Deus distingue a herança que Ele pinta.
+Por fim formou do pó o homem primeiro,
+E à sua imagem o chamou à glória;
+Deu-lhe jardim, trabalho sem cativeiro,
+E à tarde sua voz por companhia e história.
+Do lado lhe tirou auxílio verdadeiro,
+Para que em amor fosse uma só memória;
+E o Éden, mais que pomar, era o repouso
+Da criatura em seu Senhor ditoso.
 
 **4**
 
-Cai peste no rebanho, e a carne humana
-Se cobre de úlcera e de ardor maligno;
-Os magos, cujo saber antes se ufana,
-Já não podem ficar de pé no signo.
-Mas Faraó, qual torre mais insana,
-Faz do seu peito pedra e desatino;
-Quanto mais claro o céu lhe diz “humilha-te”,
-Mais se levanta o verme a desafiar-te.
+Mas a Serpe, inveja antiga e mentirosa,
+Entrou por língua doce e duvidosa;
+Pôs na Mulher a sede ambiciosa,
+E no varão a mesma culpa esposa.
+Caiu o mundo; a ciência dolorosa
+Vestiu de medo a carne outrora formosa;
+Fugiu o homem da voz que o sustentava,
+E o pó perdeu a paz que respirava.
 
 **5**
 
-Então desce do alto o granizo aceso,
-Mesclado em fogo, horrível maravilha;
-Parte-se a árvore, o campo cai indefeso,
-E o linho em flor se arrasa e se aniquila.
-Quem teme a voz do Senhor salva o preso
-Servo e animal sob teto que os auxilia;
-Quem zomba deixa ao ar sua fazenda,
-E a perde toda na celeste contenda.
+Saiu então do Juiz severo e manso
+A sentença que também trazia aurora:
+Haveria entre a Serpe e a Mulher cansaço,
+Guerra mortal, mas não vitória escura.
+Do seu fruto viria o forte braço
+Que pisaria ao fim a fronte impura;
+E assim, no mesmo instante da ruína,
+Foi dada ao mundo a primeira medicina.
 
 **6**
 
-Ainda vêm gafanhotos, espessa vaga,
-Que rói o resto do que a pedra perdoa;
-E após eles desce tenebrosa praga,
-Treva palpável, que o meio-dia atoa.
-Três dias pousa a noite, densa e vaga,
-Sobre o Egito que tateia e não se acha;
-Só em Israel há luz nas habitações,
-Sinal de que Deus pesa nações e corações.
+Logo Abel cai sob o irmão cioso,
+Primeiro justo em sangue derramado;
+Clama da terra o brado piedoso,
+Pedindo ao Céu juízo e mais cuidado.
+Caim foge com rosto assinalado e ansioso,
+Levando a cidade em coração errado;
+Mas no pastor ferido, ao campo exposto,
+Já se via em sombra o Inocente deposto.
 
 **7**
 
-Muitas vezes promete o rei soltura,
-E tantas vezes torna atrás, mentindo;
-Ora quer só os homens, não a criatura,
-Ora o culto sem o gado, ora fingindo.
-Moisés responde co’a firmeza pura
-Que tudo há de sair ao Deus servindo;
-Pois não se adora ao Senhor pela metade,
-Nem se negocia a santa liberdade.
+Cresceu depois a raça em artes vária,
+Mas cresceu mais a chaga da violência;
+Pesou a Deus a geração contrária,
+Toda inclinada à torpe resistência.
+Noé, porém, em casa solitária,
+Guardava ainda o lume da obediência;
+E a Arca, em mar de culpa universa,
+Levou um resto sobre a morte dispersa.
 
 **8**
 
-Sai do palácio irado o mensageiro,
-Depois da última afronta do tirano;
-Já não verá sua face o rei sobranceiro
-Sem que desça entre ambos juízo soberano.
-Cresce no Egito um silêncio agoureiro,
-Como ar suspenso antes do golpe insano;
-E Moisés, grande já perante a terra,
-Traz na palavra a noite e a paz da guerra.
+Romperam-se as janelas do alto céu,
+E as fontes do abismo transbordaram;
+Morreu no dilúvio o soberbo e o cruel,
+E as torres da vaidade se afogaram.
+Mas flutuou a Arca, como outro véu
+De graça sobre as águas que julgavam;
+E ao repousar nos montes, após a ira,
+Trouxe ao novo mundo a pomba e a oliveira.
 
 **9**
 
-“À meia-noite”, diz, “passará o Senhor;
-Cairá o primogênito em toda a casa,
-Do trono à mó, do estábulo ao pastor,
-E a terra inteira em grito se abrasa.
-Mas em Israel, guardado por favor,
-Nem cão moverá a língua que ameaça;
-Sabereis quanto o Deus que fere e poupa
-Divide o justo do soberbo em culpa.”
+Faz Deus então nas nuvens o sinal
+De que a ira não terá tal desmedida;
+Mas o homem, em vez de altar e rito igual,
+Torna a buscar no nome a própria vida.
+Ergue Babel seu dorso desleal,
+Querendo ao céu subir sem subida;
+Confunde Deus a língua e o vão intento,
+E espalha as nações ao largo vento.
 
 **10**
 
-Então ordena Deus o rito novo,
-Memória forte para a geração:
-Tome-se o cordeiro, inteiro e sem estorvo,
-Guardado até a tarde da imolação.
-Marquem-lhe o sangue os umbrais do seu povo,
-Comam-no em pressa, em santa preparação;
-Com ervas amargas, pão sem levedura,
-Báculo na mão, rins cingidos à partida futura.
+Contudo, sob o mapa dividido,
+Guarda o Senhor um fio de promessa;
+Chama Abrão do chão desconhecido,
+Para seguir sem mapa que o confesse.
+Deixa parentela e solo conhecido,
+E faz da fé a sua fortaleza espessa;
+No peregrino que caminha e espera,
+Começa a nação que ao Cristo houvera.
 
 **11**
 
-É a Páscoa do Senhor, passagem alta,
-Em que o Juiz ferindo também resguarda;
-Vê o sangue e por cima a morte salta,
-Deixando intacta a casa que o aguarda.
-Comem de pé, porque o chamado assalta,
-E o tempo já não sofre a demora tarda;
-Na mesma noite em que o Egito é ferido,
-Forma-se um povo para o Deus servido.
+Conta-lhe Deus as estrelas, conta o pó,
+E jura-lhe uma terra e descendência;
+Passa em fogo entre vítimas, por si só,
+Selando em graça a firme permanência.
+Quando lhe muda o nome e a sorte em voz maior,
+Faz de Abraão pai de mais larga essência;
+E em Sara, ventre estéril e cansado,
+Faz rir a vida onde o tempo era fechado.
 
 **12**
 
-Bateu meia-noite. O anjo exterminador
-Passou por sobre o reino do Nilo ufano;
-Não houve casa sem cadáver e sem dor,
-Nem peito real sem se tornar humano.
-Ergue-se um brado tal, que o grande horror
-Não teve igual nem terá nos anos;
-E o rei, quebrado em sua torre escura,
-Chama de noite os dois e cede à altura.
+Mambré recebe hóspedes divinos;
+Sodoma ouve de longe a justa chama;
+Nasce Isaac, e no monte dos espinhos
+Quase se apaga o filho da promessa e rama.
+Mas Deus provê no último dos caminhos
+O carneiro que sobe em vez do drama;
+E assim o pai, poupando o filho amado,
+Profetiza o Calvário antecipado.
 
 **13**
 
-“Saí”, lhes diz, “vós todos e o vosso gado;
-Ide servir ao Deus que tanto brada.
-Tomai os vossos filhos, e ao cuidado
-Do vosso rito entregai a madrugada.
-Só ide, e dai-me ainda o bem buscado,
-Que me abençoeis nesta hora quebrada.”
-Assim o Egito, urgindo a despedida,
-Expulsa para fora a grande multidão remida.
+Segue-se Jacó, com fraude e fuga tecida,
+Dormindo em pedra e vendo aberto o Céu;
+Luta com Deus, sai manco para a vida,
+E em Israel recebe nome seu.
+A escada entre a terra estremecida
+E a glória alta que ao pecador desceu
+Já prometia, em símbolo escondido,
+O Mediador futuro ao mundo vindo.
 
 **14**
 
-Sai Israel de Ramessés em tropa,
-Seiscentos mil a pé, sem os pequenos;
-Leva em panos a massa ainda em roupa,
-Sem fermento, e despojos mais que plenos.
-Vasa de ouro e prata a egípcia copa,
-Como salário tardio aos anos penos;
-E a noite que lhes abre a nova estrada
-Fica por memória em cada geração guardada.
+Cresce José entre inveja e sonho alto,
+Filho vendido por irmãos e prata;
+Desce ao poço, ao mercado e ao sobressalto,
+Vai ao Egito e à prisão ingrata.
+Mas Deus faz de seu mal celeiro e salto,
+Transforma a dor em pão que o mundo trata;
+E o justo, humilhado antes da glória,
+Torna-se figura viva da futura história.
 
 **15**
 
-Vai diante deles a coluna santa,
-De nuvem pelo dia, à noite em fogo;
-O deserto, que ao fraco a vista espanta,
-Torna-se via sob tal claro e jogo.
-Leva Moisés os ossos do vidente
-Que prometera a visita em santo rogo;
-José, que outrora salvara a casa errante,
-Marcha em memória com o povo caminhante.
+Quando seus irmãos se prostram sem sabê-lo,
+Cumpre-se o sonho antigo e a providência;
+Chora José, e ao revelar-se inteiro,
+Mostra perdão maior que a violência.
+"Não fostes vós somente" — diz primeiro —
+"Deus me mandou adiante para a sobrevivência."
+Assim se aprende, ao ver o mal vencido,
+Que Deus escreve mais fundo que o perdido.
 
 **16**
 
-Mas muda o rei, e a servidão perdida
-Lhe parece loucura irreparável;
-Junta os carros, a flor da força erguida,
-E sai no encalço ao mar inexorável.
-Vê Israel o pó da hoste enfurecida,
-E treme ante o perigo inevitável;
-Clama o povo: “Era melhor o cativeiro
-Que este sepulcro aberto em mar e areia.”
+Desce Israel ao Egito conduzido,
+Não por acaso cego, mas por trama;
+Leva consigo o pacto prometido,
+Embora a noite em servidão se inflama.
+Tudo o que antes foi jardim perdido,
+Sangue clamante, arca, altar e rama,
+Vai convergindo, em longa preparação,
+Para um Cordeiro e uma nova Criação.
 
 **17**
 
-Então responde o servo com voz firme:
-“Não temais; vede hoje a salvação.
-Esses egípcios, cujo horror vos oprime,
-Não os vereis de novo em sucessão.
-O Senhor pelejará; a vós confirme
-Silêncio e fé, não turba nem razão.”
-E ao mar levanta a vara obediente,
-Enquanto a nuvem passa à retaguarda ardente.
+Porque no Éden se perdera a veste,
+Na Arca se salvara um resto errante;
+Em Babel se partira a voz celeste,
+Em Abraão surgira o povo caminhante.
+Em Isaac já subira ao monte agreste
+O filho amado em lenha palpitante;
+Em José já sofrera o justo puro,
+Antes de abrir celeiros ao futuro.
 
 **18**
 
-Toda a noite assopra o vento do Oriente,
-E as águas se dividem, paredões;
-Fica o abismo em seco, resplendente,
-Abrindo ao povo ocultas fundações.
-Entra Israel por meio, livremente,
-Com muros líquidos às duas mãos;
-Atrás o seguem carros e cavaleiros,
-Sem ver que entram no juízo derradeiro.
+Nada era vão nas sombras do começo,
+Nem mero fato a esmo pelo chão;
+Cada figura, em seu parcial excesso,
+Pedia termo, corpo e perfeição.
+O Cristo, abrindo em Emaús tal nexo,
+Mostrou o fio da antiga narração:
+Que a história toda, desde a árvore ferida,
+Buscava nEle o centro e a nova vida.
 
 **19**
 
-Da nuvem olha Deus ao campo armado,
-Confunde rodas, quebra a valentia;
-Grita o Egito: “Fujamos, que ao seu lado
-Luta por eles o Senhor neste dia.”
-Mas tarde é já. Moisés, de novo alçado,
-Estende a mão; rompe-se a travessia.
-Voltam as águas, sepultando em seu ruído
-Cavalo, carro, rei e orgulho enfurecido.
+Por isso o Génesis não é só aurora,
+Mas ferida, promessa e longa espera;
+É o livro em que a ruína já implora
+Aquele Sol que em carne aparecera.
+Lido após Páscoa, mais profundo aflora,
+Pois o primeiro jardim o último gera;
+E o que parecia origem apenas nua
+Se mostra estrada ao Verbo e glória sua.
 
 **20**
 
-Salvo Israel, contempla do outro porto
-Os mortos do inimigo sobre a areia;
-Aprende então que o braço do Deus forte
-Não falha quando a fé tremente anseia.
-E já no mar ressoa, contra a morte:
-“Cantemos ao Senhor!” — a alta cadeia
-Dos carros de Faraó ficou no fundo,
-E abriu-se à liberdade um novo mundo.
+Feche-se o canto das origens santas,
+Com o Ressuscitado ao fundo interpretando;
+Já não são pó disperso as velhas plantas,
+Mas raízes do Reino florescendo.
+Do Éden a José, entre sombras tantas,
+Vai Deus a cruz e a Páscoa preparando;
+E a memória, em Cristo relida e pura,
+Faz do passado profecia e formosura.
