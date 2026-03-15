@@ -7,88 +7,88 @@
 Do livro das origens vai-se adiante
 À Lei, ao mar, ao deserto e ao reinado;
 Convém seguir o povo caminhante,
-Por Deus de entre as nações separado.
-Tudo o que o antigo mundo viu distante —
-Cordeiro, arca, vara e trono alçado —
-Aqui se espraia em figura mais severa,
-Que ao Cristo e ao seu Reino se acelera.
+Por Deus de entre as nações apartado.
+Tudo o que o mundo viu remoto e grande,
+Em sombra e rito foi-lhe figurado;
+E o cordeiro, a arca, a vara e o mandamento,
+Pediam já mais alto Cumprimento.
 
 **2**
 
 No Egito geme o povo sob o barro,
-Com o nome dos pais em lágrimas guardado;
-Mas Deus se lembra, e do espinhal sem carro
+Com o nome dos seus pais por alto brado;
+Mas Deus se lembra, e do espinhal bizarro
 Chama Moisés por fogo não gastado.
-"Eu Sou" ressoa em meio ao chão bizarro,
-E o servo treme ante o mistério alçado;
-Assim começa, em Nome e chama dura,
-A libertação que excede a escravatura.
+“Eu Sou” ressoa em meio ao monte avaro,
+E o servo treme ao Nome revelado;
+Assim começa, em chama e voz segura,
+A libertação contra a escravatura.
 
 **3**
 
-Fere-se o Nilo, as trevas, a semente,
-O granizo, o gafanhoto, a carne e o gado;
-E Faraó endurece inutilmente
-O peito, contra o Céu obstinado.
-Mas cresce a noite para que mais resplendente
-Se veja o braço do Senhor irado;
-Não por capricho, mas por santo juízo,
-Que humilha o ídolo e exalta o prometido.
+Fere-se o Nilo, a treva e a semente,
+O gado, o granizo, o gafanhoto irado;
+E Faraó resiste duramente,
+Com peito contra o Céu obstinado.
+Mas cresce a noite, para que mais lucente
+Se veja o braço do Senhor alçado;
+Humilha-se o Egito e seu desvio,
+Para que só Deus reine em senhorio.
 
 **4**
 
-Chega a Páscoa: um cordeiro sem mancha é dado,
-Seu sangue marca portas na aflição;
-Come-se em pressa, o lombo já cingido,
-O pão sem levedura e o bastão na mão.
-Passa a morte, e o povo resguardado
-Sai para a noite em nova condição;
-E a antiga ceia, em rito e sacrifício,
-Pedia já um mais profundo ofício.
+Chega a Páscoa: um cordeiro sem mancha,
+Tem seu sangue nos umbrais derramado;
+Come-se em pressa, cinge-se a esperança,
+Fica o ázimo pão aparelhado.
+Passa a morte, e a casa em tal bonança,
+É do rigor do golpe resguardado;
+Mas no sinal do sangue e do sacrifício,
+Lia-se já de Cristo o mais alto ofício.
 
 **5**
 
 Abre-se o mar ante a vara obediente,
-E o povo passa em seco, entre muralhas;
+E o povo passa em seco, livre e ousado;
 Voltam as águas sobre a hoste insolente,
-Sepultando cavalo, rei e atalhas.
-Cantam Moisés e Míriam triunfantemente,
-Porque Deus vence sem precisar batalhas
-À moda humana; e no vermelho abismo
-Já se figura a água do batismo.
+Cavalo e carro em turbilhão cerrado.
+Cantam Moisés e Míriam juntamente,
+Porque o braço do Céu foi revelado;
+E no vermelho abismo e seu batismo,
+Figura-se a água santa do cristianismo.
 
 **6**
 
-No ermo aprende Israel fome e demora;
-Em Mara prova a água amarga e dura;
+No ermo aprende Israel fome e demora,
+Em Mara prova a linfa amargurada;
 Do Céu lhe cai maná na fria aurora,
-E a rocha aberta em sede dá fartura.
-Mas cada dom, ao mesmo tempo, implora
-Fé que não murmure em noite escura;
-Pois não vive o homem só de pão e fonte,
-Mas da Palavra que o conduz no monte.
+E a rocha aberta o farta em jornada.
+Mas cada dom, ao mesmo tempo, implora,
+Fé contra a voz rebelde e murmurada;
+Pois não vive o homem só do pão que toma,
+Mas do Verbo que o guia e o consuma.
 
 **7**
 
 Vem Amalec; no vale a espada soa,
-Enquanto a mão de Moisés se ergue ao vento.
-Quando a intercessão no alto se povoa,
-Cede o inimigo ao povo em movimento.
-Não basta a força que no braço entoa,
-Se o Céu não sustém todo o fundamento;
-E assim o povo aprende, em luta antiga,
-Que a vitória do Alto o mais fraco abriga.
+Enquanto a mão de Moisés vai levantada;
+Quando a oração no alto mais se entoa,
+Cede o inimigo à força sustentada.
+Não basta o braço que no ferro voa,
+Se o Céu lhe não assistir com mão sagrada;
+Aprende o povo em luta e desatino,
+Que sua guerra depende do Divino.
 
 **8**
 
 Fumega o Sinai em trovão e chama,
-E a trompa faz tremer vale e penedo;
-Desce o Senhor, e a multidão o aclama
-Com lábios prontos, mas sem íntimo enredo.
-Dá a Lei que a alma e o corpo inteiro chama,
-Não só o gesto, mas o amor e o medo;
-E assim o povo, salvo da corrente,
-Aprende que a liberdade pede mente.
+E a trompa faz tremer monte e penedo;
+Desce o Senhor, e a multidão o chama
+Com lábio pronto, e coração com medo.
+Dá a Lei que a alma e o corpo inteiro inflama,
+E não só o gesto exterior e quedo;
+Assim o povo, salvo da corrente,
+Aprende que a liberdade exige mente.
 
 **9**
 
@@ -97,8 +97,8 @@ Se faz novilho à turba vacilante;
 Troca-se a Glória por metal e fogo,
 E ao pé do monte dança o povo errante.
 Quebra-se a pedra, mói-se o ídolo em jogo,
-Sobe Moisés a rogar de novo adiante;
-E o zelo que ferira a transgressão
+Sobe Moisés a rogar mais adiante;
+E o zelo, que ferira a transgressão,
 Abre à graça outra vez a eleição.
 
 **10**
@@ -118,21 +118,21 @@ Segue o caminho entre rebeldes vozes,
 Espias, medo, Cades e sentença;
 Quarenta anos consomem gerações atrozes,
 Porque sem fé não se possui a herança.
-Mas mesmo no castigo e nas ferocidades,
-Deus guarda Caleb, Josué e a esperança;
-E o bronze erguido contra a serpe ardente
-Já mostra em sombra a cura ao povo doente.
+Mas Deus conserva, em meio a tantas nozes?
+Caleb, Josué e a firme esperança;
+E o bronze erguido contra a serpe ardente,
+Promete cura ao povo impenitente.
 
 **12**
 
-Morre Moisés, olhando de longe a terra;
+Morre Moisés, olhando ao longe a terra;
 Passa a Josué a espada e o cuidado.
 O Jordão foge à arca, e a antiga guerra
 Se abre em Canaã, por Deus levado.
-Cai Jericó não pelo braço que se encerra,
-Mas pela obediência e o som sagrado;
-E assim se aprende, à entrada da conquista,
-Que a fé é mais que máquina prevista.
+Cai Jericó não pelo braço que se aferra,
+Mas pela obediência e som sagrado;
+Mostra-se assim, na entrada da conquista,
+Que a fé vale mais que a máquina prevista.
 
 **13**
 
@@ -149,8 +149,8 @@ Mostra o homem entre dons e sombras dadas.
 
 Samuel ouve de noite a Voz antiga,
 Enquanto o povo pede um rei vistoso;
-Quer ser como as nações, e assim obriga
-A sofrer Saul, de início promissor e pomposo.
+Quer ser qual as nações, e assim castiga
+A si com Saul, primeiro promissor e ansioso.
 Mas Deus escolhe em David outra liga,
 Pastor menor, porém de peito ardoroso;
 E o moço, contra o bronze filisteu,
@@ -158,66 +158,22 @@ Vence em nome do Senhor, não do braço seu.
 
 **15**
 
-Padece o ungido longo desterro e prova,
-Poupa o inimigo e aprende realeza;
-Sobe enfim a Sião, e a arca renova
-No centro da cidade a santa firmeza.
-Canta ao Senhor, e a promessa lhe coroa
-A casa com perpétua fortaleza:
-De seu trono virá, em tempo eleito,
-Um Rei sem fim, de paz e sangue feito.
+Sobe depois a Sião o rei ungido,
+E a arca põe no centro da cidade;
+Promete-lhe o Senhor, do alto ouvido,
+Uma casa sem fim, por sua bondade.
+Levanta Salomão o templo luzido,
+E a nuvem o consagra em majestade;
+Mas quanto mais floresce o reino humano,
+Mais mostra o coração seu dano arcano.
 
 **16**
 
-Levanta Salomão o templo brilhante,
-Com ouro, cedro, nuvem e memória;
-Desce a Presença ao santo recinto amante,
-E a glória enche de peso a alta história.
-Mas o coração do homem é vacilante,
-Mesmo entre canto, sabedoria e vitória;
-Divide-se o reino, e sua pompa breve
-Mostra quão pouco o ouro ao Deus retém.
-
-**17**
-
-Assim a Lei, o Êxodo e o reinado
-Não valem por si sós, soltos no vento;
+Assim a Lei, o Êxodo e o reinado,
+Não valem por si sós, soltos ao vento;
 Cada figura, rito ou rei sagrado,
 Pedia um termo mais perfeito e lento.
-O cordeiro, o maná, o mar rasgado,
-A arca, o trono, o templo e o mandamento,
-Tudo formava em sombra e disciplina
-A via por que o Cristo se aproxima.
-
-**18**
-
-Pois Ele é o Cordeiro da saída,
-É o mar que abre à morte nova fuga,
-É o pão do céu, a rocha que dá vida,
-O tabernáculo em que Deus se conjuga.
-É mais que Josué na terra prometida,
-Mais que David na paz que não caduca,
-Mais que o templo, onde a Presença arde,
-Porque em sua carne o Céu inteiro guarde.
-
-**19**
-
-Lido no corpo da futura história,
-Este passado ganha mais sentido;
-O que parece só guerra ou memória,
-É longa escola ao povo prometido.
-A Lei prepara a graça e sua glória,
-O ermo educa o coração ferido;
-E o reino antigo, em sua falha e brilho,
-Acena à vinda do perfeito Filho.
-
-**20**
-
-Feche-se o canto entre a nuvem e o madeiro,
-Entre o Jordão, a arca e o trono ungido;
-Do Egito à Sião, do maná ao cordeiro,
-Vai-se entendendo o mesmo santo fio.
-E o que foi rito, reino e cativeiro
-Pede o desfecho ainda não cumprido;
-Prossegue, pois, o épico caminho,
-Até que a Cruz revele o Rei divino.
+O cordeiro, o mar, o trono levantado,
+O templo, a arca e o santo mandamento,
+Tudo formava, em sombra e disciplina,
+A via por que o Cristo se avizinha.
