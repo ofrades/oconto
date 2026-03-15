@@ -92,7 +92,7 @@ Parece dar por finda a prometida vida.
 
 **9**
 
-Arde o Templo, e o santo povo cativo
+Arde o Templo, e o santo povo cativo,
 Pende as harpas junto aos canais da dor;
 Parece o pacto já sem ser ativo,
 Parece morto o oráculo do amor.

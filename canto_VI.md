@@ -44,14 +44,14 @@ Fica o ázimo pão aparelhado.
 Passa a morte, e a casa em tal bonança,
 É do rigor do golpe resguardado;
 Mas no sinal do sangue e do sacrifício,
-Lia-se já de Cristo o mais alto ofício.
+Lia-se já de Cristo o alto ofício.
 
 **5**
 
 Abre-se o mar ante a vara obediente,
 E o povo passa em seco, livre e ousado;
 Voltam as águas sobre a hoste insolente,
-Cavalo e carro em turbilhão cerrado.
+Cavalo e carro em turbilhão fechado.
 Cantam Moisés e Míriam juntamente,
 Porque o braço do Céu foi revelado;
 E no vermelho abismo e seu batismo,
@@ -63,7 +63,7 @@ No ermo aprende Israel fome e demora,
 Em Mara prova a linfa amargurada;
 Do Céu lhe cai maná na fria aurora,
 E a rocha aberta o farta em jornada.
-Mas cada dom, ao mesmo tempo, implora,
+Mas cada dom, ao mesmo tempo, implora
 Fé contra a voz rebelde e murmurada;
 Pois não vive o homem só do pão que toma,
 Mas do Verbo que o guia e o consuma.
@@ -71,12 +71,12 @@ Mas do Verbo que o guia e o consuma.
 **7**
 
 Vem Amalec; no vale a espada soa,
-Enquanto a mão de Moisés vai levantada;
-Quando a oração no alto mais se entoa,
+Enquanto a mão de Moisés vai alçada;
+Quando a oração mais alta ao Céu revoa,
 Cede o inimigo à força sustentada.
 Não basta o braço que no ferro voa,
 Se o Céu lhe não assistir com mão sagrada;
-Aprende o povo em luta e desatino,
+Aprende o povo, em luta e desatino,
 Que sua guerra depende do Divino.
 
 **8**
@@ -84,9 +84,9 @@ Que sua guerra depende do Divino.
 Fumega o Sinai em trovão e chama,
 E a trompa faz tremer monte e penedo;
 Desce o Senhor, e a multidão o chama
-Com lábio pronto, e coração com medo.
-Dá a Lei que a alma e o corpo inteiro inflama,
-E não só o gesto exterior e quedo;
+Com lábio pronto, mas no peito medo.
+Dá a Lei, que alma e corpo inteiro inflama,
+E não só o exterior e quedo enredo;
 Assim o povo, salvo da corrente,
 Aprende que a liberdade exige mente.
 
@@ -118,7 +118,7 @@ Segue o caminho entre rebeldes vozes,
 Espias, medo, Cades e sentença;
 Quarenta anos consomem gerações atrozes,
 Porque sem fé não se possui a herança.
-Mas Deus conserva, em meio a tantas nozes?
+Mas Deus conserva, em meio a tantas nozes,
 Caleb, Josué e a firme esperança;
 E o bronze erguido contra a serpe ardente,
 Promete cura ao povo impenitente.
@@ -129,8 +129,8 @@ Morre Moisés, olhando ao longe a terra;
 Passa a Josué a espada e o cuidado.
 O Jordão foge à arca, e a antiga guerra
 Se abre em Canaã, por Deus levado.
-Cai Jericó não pelo braço que se aferra,
-Mas pela obediência e som sagrado;
+Cai Jericó, e o braço não se aferra,
+Mas vence a obediência e o som sagrado;
 Mostra-se assim, na entrada da conquista,
 Que a fé vale mais que a máquina prevista.
 
