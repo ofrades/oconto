@@ -4,220 +4,220 @@
 
 **1**
 
-Já vê Jerusalém do monte a entrada,
-E o Rei sem pompa escolhe humilde jumento;
-Não vem com lança ao modo da jornada
-Dos reis que erguem em sangue o monumento.
-Estende a turba a veste e a verde ramada,
-Misturando verdade e vão intento;
-"Hosana" soa ao Filho de David,
-Enquanto a cruz lhe vem no mesmo viço.
+Mas antes que o Cordeiro à cruz se incline,
+Convém buscar as fontes da ferida;
+Ver como o mundo, desde o seu declínio,
+Chamava em sombra a restaurada vida.
+Não por recomeço vão, que ao épico arruíne,
+Mas por memória grave e refletida:
+Toda a primeira idade, em dor e grito,
+Pedia já o rosto do futuro Cristo.
 
 **2**
 
-Chora o Senhor a Cidade endurecida,
-Que não conhece o tempo da visita;
-Tem muros, culto, lâmpada acendida,
-Mas o coração ao seu Deus evita.
-Vê já de longe a pedra consumida,
-O templo em pó, a glória derrocada e aflita;
-Pois toda paz recusada em seu começo
-Volta depois em juízo mais espesso.
+No princípio falou o Verbo eterno,
+E o nada ouviu a ordem soberana;
+Da treva fez-se o dia, e do caos sem governo
+Brotou a medida, a flor, a luz ufana.
+Nasceu o mar, o firmamento claro e terno,
+A ave, o peixe, a fera e a seara humana;
+E tudo era bom, porque da Mão divina
+Saía o ser em paz, beleza e rima.
 
 **3**
 
-Entra no átrio e vê o santo espaço
-Feito mercado, moeda e voz profana;
-Derruba mesas, corta o torpe laço,
-E em zelo puro a casa do Pai reclama.
-Os cegos, pobres, crianças e cansaço
-Acham nele a realeza mais humana;
-Mas os que guardam preço, posto e vara,
-Concebem contra Ele trama mais avara.
+Por fim formou do pó o homem primeiro,
+E à sua imagem o chamou à glória;
+Deu-lhe jardim, trabalho sem cativeiro,
+E à tarde sua voz por companhia e história.
+Do lado lhe tirou auxílio verdadeiro,
+Para que em amor fosse uma só memória;
+E o Éden, mais que pomar, era o repouso
+Da criatura em seu Senhor ditoso.
 
 **4**
 
-Fala então em parábolas de vinha,
-De servos mortos e do Filho expulso;
-Mostra que a pedra rejeitada vinha
-A ser cabeça de mais firme impulso.
-Perguntam-lhe do censo, e sua linha
-Não cai nem no temor nem no tumulto:
-Dai a César o selo em moeda bruta,
-E a Deus o homem, onde a imagem frutifica.
+Mas a Serpe, inveja antiga e mentirosa,
+Entrou por língua doce e duvidosa;
+Pôs na Mulher a sede ambiciosa,
+E no varão a mesma culpa esposa.
+Caiu o mundo; a ciência dolorosa
+Vestiu de medo a carne outrora formosa;
+Fugiu o homem da voz que o sustentava,
+E o pó perdeu a paz que respirava.
 
 **5**
 
-No templo ensina ainda o fim dos dias,
-Guerras, enganos, dores e vigília;
-Louva a viúva pobre, em duas tias,
-Mais rica que a opulenta maravilha.
-Não mede Deus o peso das vazias
-Ofertas pelo som que o mundo trilha,
-Mas pelo coração que se despoja
-E em seu pouco a própria vida arroja.
+Saiu então do Juiz severo e manso
+A sentença que também trazia aurora:
+Haveria entre a Serpe e a Mulher cansaço,
+Guerra mortal, mas não vitória escura.
+Do seu fruto viria o forte braço
+Que pisaria ao fim a fronte impura;
+E assim, no mesmo instante da ruína,
+Foi dada ao mundo a primeira medicina.
 
 **6**
 
-Chega afinal a noite desejada,
-Em que a antiga Páscoa encontra seu sentido;
-Busca-se a sala alta, preparada,
-Para o cordeiro e o grupo reunido.
-Sabe o Senhor que a hora está chegada
-De passar deste mundo ao Pai querido;
-E amando os seus até o extremo amado,
-Cinge a toalha ao corpo já inclinado.
+Logo Abel cai sob o irmão cioso,
+Primeiro justo em sangue derramado;
+Clama da terra o brado piedoso,
+Pedindo ao Céu juízo e mais cuidado.
+Caim foge com rosto assinalado e ansioso,
+Levando a cidade em coração errado;
+Mas no pastor ferido, ao campo exposto,
+Já se via em sombra o Inocente deposto.
 
 **7**
 
-Lava-lhes os pés o Rei do universo,
-Confundindo a grandeza e o pensamento;
-Pedro recusa o gesto mais submerso,
-Sem ver no serviço o régio fundamento.
-Mas Cristo o adverte em ensino terso:
-"Se eu te não lavar, ficas sem meu tento."
-Aprendem os discípulos, por água e pó,
-Que reina o Maior fazendo-se menor.
+Cresceu depois a raça em artes vária,
+Mas cresceu mais a chaga da violência;
+Pesou a Deus a geração contrária,
+Toda inclinada à torpe resistência.
+Noé, porém, em casa solitária,
+Guardava ainda o lume da obediência;
+E a Arca, em mar de culpa universa,
+Levou um resto sobre a morte dispersa.
 
 **8**
 
-Sentado à mesa, toma o pão nas mãos,
-Bendiz, reparte, e dá-o aos companheiros:
-"Tomai e comei; este sou eu por vós,
-Corpo entregue em amor verdadeiro."
-Toma depois o cálice, e os corações
-Se curvam ante o dom inteiro:
-"Este é meu sangue, nova e eterna aliança,
-Que por muitos se verte em remissão e esperança."
+Romperam-se as janelas do alto céu,
+E as fontes do abismo transbordaram;
+Morreu no dilúvio o soberbo e o cruel,
+E as torres da vaidade se afogaram.
+Mas flutuou a Arca, como outro véu
+De graça sobre as águas que julgavam;
+E ao repousar nos montes, após a ira,
+Trouxe ao novo mundo a pomba e a oliveira.
 
 **9**
 
-Cala-se o mundo ante o augusto excesso:
-A Páscoa antiga acha o seu Cordeiro;
-O maná, o altar, o sangue posto ao umbral espesso,
-Tudo se cumpre ali, mais verdadeiro.
-Não é figura já, mas real acesso
-Do próprio Deus em pão e vinho inteiro;
-E o Poeta, em silêncio reverente,
-Sente que o Céu se faz comida à gente.
+Faz Deus então nas nuvens o sinal
+De que a ira não terá tal desmedida;
+Mas o homem, em vez de altar e rito igual,
+Torna a buscar no nome a própria vida.
+Ergue Babel seu dorso desleal,
+Querendo ao céu subir sem subida;
+Confunde Deus a língua e o vão intento,
+E espalha as nações ao largo vento.
 
 **10**
 
-Mas junto ao dom se move a sombra escura;
-Judas traz no peito a noite e o preço.
-O Mestre o mostra sem ferir a mesa pura,
-Dando ainda ao traidor o mesmo acesso.
-Sai ele à rua; e mais se fecha a altura
-Do ar noturno em seu torcido regresso.
-Era noite — e no breu do coração vendido
-Entrava o príncipe antigo e enfurecido.
+Contudo, sob o mapa dividido,
+Guarda o Senhor um fio de promessa;
+Chama Abrão do chão desconhecido,
+Para seguir sem mapa que o confesse.
+Deixa parentela e solo conhecido,
+E faz da fé a sua fortaleza espessa;
+No peregrino que caminha e espera,
+Começa a nação que ao Cristo houvera.
 
 **11**
 
-Fala Jesus do amor por mandamento novo,
-Da videira e dos ramos em seu ser,
-Do ódio do mundo contra o santo povo,
-Da paz que nEle só se pode ter.
-Promete o Espírito, consolador e fogo,
-Que há de ensinar, lembrar e fortalecer;
-E eleva ao Pai a sacerdotal rogativa,
-Guardando em prece sua grei cativa.
+Conta-lhe Deus as estrelas, conta o pó,
+E jura-lhe uma terra e descendência;
+Passa em fogo entre vítimas, por si só,
+Selando em graça a firme permanência.
+Quando lhe muda o nome e a sorte em voz maior,
+Faz de Abraão pai de mais larga essência;
+E em Sara, ventre estéril e cansado,
+Faz rir a vida onde o tempo era fechado.
 
 **12**
 
-Sai depois ao jardim de Getsêmani,
-Levando Pedro, Tiago e João consigo;
-O peso da hora cai-lhe sobre a carne,
-E a alma geme em pavor sem ter castigo.
-Não foge à dor, nem busca alívio vário,
-Mas prostra-se ante o cálice inimigo:
-"Se possível, passe; contudo, seja
-Não o que eu quero, Pai, mas o que tua vontade deseja."
+Mambré recebe hóspedes divinos;
+Sodoma ouve de longe a justa chama;
+Nasce Isaac, e no monte dos espinhos
+Quase se apaga o filho da promessa e rama.
+Mas Deus provê no último dos caminhos
+O carneiro que sobe em vez do drama;
+E assim o pai, poupando o filho amado,
+Profetiza o Calvário antecipado.
 
 **13**
 
-Sua em sangue o Novo Adão no horto,
-Vencendo ali a antiga rebeldia;
-Onde o primeiro em flor perdeu conforto,
-Ganha o Segundo em suor a nova via.
-Dormem os seus, de tristeza quase mortos,
-E o Anjo o fortalece em agonia;
-Até que ao longe chega a turba armada,
-Guiada por um beijo e por espada.
+Segue-se Jacó, com fraude e fuga tecida,
+Dormindo em pedra e vendo aberto o Céu;
+Luta com Deus, sai manco para a vida,
+E em Israel recebe nome seu.
+A escada entre a terra estremecida
+E a glória alta que ao pecador desceu
+Já prometia, em símbolo escondido,
+O Mediador futuro ao mundo vindo.
 
 **14**
 
-"Amigo, a que vieste?" — assim responde
-Ao traidor o Senhor, sem vil aspereza.
-Cai por terra a coorte, quando ele esconde
-No simples "Eu sou" a eterna fortaleza.
-Mas entrega-se livre, porque o Pai lhe ordene,
-E sara ainda a orelha em sua nobreza.
-Não vence o Cristo por fugir ao açoite,
-Mas por entrar senhor na própria noite.
+Cresce José entre inveja e sonho alto,
+Filho vendido por irmãos e prata;
+Desce ao poço, ao mercado e ao sobressalto,
+Vai ao Egito e à prisão ingrata.
+Mas Deus faz de seu mal celeiro e salto,
+Transforma a dor em pão que o mundo trata;
+E o justo, humilhado antes da glória,
+Torna-se figura viva da futura história.
 
 **15**
 
-Levado vai ao sumo sacerdócio,
-Onde a mentira busca falso acordo;
-Torcem testemunhos contra o Justo e sóbrio,
-Como se o Sol pudesse tornar-se morto.
-Cala-se o Cristo em majestoso ócio,
-Até que ao Nome responde em tom absorto.
-Rasgam-se vestes, gritam "blasfemia!",
-E o Santo sofre escárnio e profecia.
+Quando seus irmãos se prostram sem sabê-lo,
+Cumpre-se o sonho antigo e a providência;
+Chora José, e ao revelar-se inteiro,
+Mostra perdão maior que a violência.
+"Não fostes vós somente" — diz primeiro —
+"Deus me mandou adiante para a sobrevivência."
+Assim se aprende, ao ver o mal vencido,
+Que Deus escreve mais fundo que o perdido.
 
 **16**
 
-Pedro, ao longe, no pátio frio e aceso,
-Nega três vezes o Senhor amado;
-Canta o galo, e o olhar do Mestre, ileso,
-Trespassa o peito do discípulo turbado.
-Sai Pedro a chorar seu medo e peso,
-Mais pobre e mais humilde que humilhado;
-Porque a graça, antes de erguer a pedra,
-Quebra-lhe o orgulho e o coração depedra.
+Desce Israel ao Egito conduzido,
+Não por acaso cego, mas por trama;
+Leva consigo o pacto prometido,
+Embora a noite em servidão se inflama.
+Tudo o que antes foi jardim perdido,
+Sangue clamante, arca, altar e rama,
+Vai convergindo, em longa preparação,
+Para um Cordeiro e uma nova Criação.
 
 **17**
 
-Levam-no a Pilatos; o poder romano
-Lava as mãos sem lavar-se a consciência.
-Herodes o remete em vão e engano,
-Vestindo-o de irrisória magnificência.
-Clama a turba, num furor já desumano,
-Por Barrabás e contra a Inocência;
-E o juiz, temendo mais a voz da praça,
-Entrega o Rei à cruz que o povo abraça.
+Porque no Éden se perdera a veste,
+Na Arca se salvara um resto errante;
+Em Babel se partira a voz celeste,
+Em Abraão surgira o povo caminhante.
+Em Isaac já subira ao monte agreste
+O filho amado em lenha palpitante;
+Em José já sofrera o justo puro,
+Antes de abrir celeiros ao futuro.
 
 **18**
 
-Sobem-lhe às costas o madeiro duro,
-Como a Isaac outrora a lenha erguida;
-Vai o Cordeiro ao monte mais escuro,
-Levando em si a culpa alheia e a vida.
- Mulheres choram; Ele, em tom mais puro,
-Manda-as chorar a futura ferida.
-Chega ao Calvário, e a mão que tudo criara
-É presa ao lenho que o mundo preparara.
+Nada era vão nas sombras do começo,
+Nem mero fato a esmo pelo chão;
+Cada figura, em seu parcial excesso,
+Pedia termo, corpo e perfeição.
+O mundo inteiro, em seu antigo avesso,
+Buscava ao longe a nova Redenção;
+E a história toda, desde a árvore ferida,
+Clamava por mais funda e alta vida.
 
 **19**
 
-Erguido entre ladrões, por trono a cruz,
-Reina o Senhor no auge do abandono;
-Pede perdão por quem lhe apaga a luz,
-Abre ao ladrão contrito o eterno trono.
-Dá a Mãe ao discípulo, e em negra cruz
-Sente o peso do cálice sem sono.
-Clama por sede, cumpre a Escritura inteira,
-E entrega ao Pai a vida derradeira.
+Por isso o Gênesis não é só aurora,
+Mas ferida, promessa e longa espera;
+É o livro em que a ruína já implora
+Aquele Sol que em carne aparecera.
+Lido ante a Cruz, mais fundo ainda aflora,
+Pois o primeiro jardim o último gera;
+E o que parece origem apenas nua
+Se mostra estrada à alta vitória sua.
 
 **20**
 
-Rasga-se o véu; treme a terra; cala-se o templo;
-O centurião confessa o Rei verdadeiro.
-Do lado aberto corre duplo exemplo:
-Sangue e água ao mundo prisioneiro.
-Põe-se no túmulo o Corpo em santo templo,
-Enquanto a noite pensa ter por derradeiro
-O Verbo eterno. Mas no escuro chão
-Já germina a vitória da ressurreição.
+Feche-se o canto das origens santas,
+Com o fio da promessa florescendo;
+Do Éden a José, entre sombras tantas,
+Vai Deus a cruz futura preparando.
+E a memória, em grave canto relida,
+Não pesa ao épico um regresso infindo,
+Mas faz do início, à luz do fim pressentido,
+Raiz do drama santo já cumprido.
