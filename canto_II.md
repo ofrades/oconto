@@ -4,220 +4,220 @@
 
 **1**
 
-Já fora o homem do pomar lançado,
-Com suor comprando o pão de cada dia;
-Geme a mulher, e o chão, antes folgado,
-Dá cardo à mão que o rasga e desafia.
-Mas mesmo ao leste do lugar vedado,
-Ainda se erguia altar e primazia:
-Dois filhos de Adão vêm diante do Senhor,
-Um traz da terra, outro do gado, a flor.
+Mal se calara o Anjo, e já corria
+Maria pela serra de Judá;
+Leva no seio a Luz que principia,
+E a casa de Zacarias buscará.
+Não vai com pompa a nova Monarquia,
+Nem carro algum a Virgem guiará;
+Vai só, mas leva em sua pressa pura
+A visita de Deus à criatura.
 
 **2**
 
-Abel oferece as primícias gordas,
-E sobe ao Céu seu fumo mais aceito;
-Caim, vendo cerradas as altas portas,
-Traz no semblante o seu despeito estreito.
-Falou-lhe Deus: “Se bem fizeres, tornas
-A levantar o rosto já desfeito;
-À porta está o pecado, fera escura,
-Mas cabe ao homem dominá-la e dura.”
+Entra e saúda Isabel; e no momento
+Salta o menino no materno abrigo.
+Sente João, no escuro movimento,
+Que já chegou mais forte que ele o Amigo.
+Enche-se a mãe de sobrenatural vento,
+E rompe em voz que vem do Céu consigo:
+“Bendita és tu entre as mulheres todas,
+E bendito o Fruto que em ti acomodas.
 
 **3**
 
-Não quis ouvir o réprobo lavrador;
-Chamou o irmão ao campo e ali o fere.
-Tomba o pastor, primeiro mártir da dor,
-E o sangue justo ao alto Juiz prefere.
-“Abel, teu irmão?” pergunta o Criador;
-“Sou eu seu guarda?” o falso peito infere.
-Então a terra, abrindo a funda entranha,
-Clamou do sangue a acusação estranha.
+Donde me vem que a Mãe do meu Senhor
+Visite assim minha pobreza antiga?
+Ao som da tua voz e do teu ardor
+Meu filho exulta, e a esterilidade abriga.
+Bem-aventurada és, porque o Favor
+De Deus cumpriu em ti quanto te diga.”
+Assim a velha aliança, em sua tarde,
+Saúda a nova aurora que já arde.
 
 **4**
 
-Sai Caim fugitivo e assinalado,
-Levando em si a marca e o seu receio;
-Funda cidades, busca ser nomeado,
-Mas vai com medo no mais forte seio.
-Cresce a linhagem, o ferro é trabalhado,
-A cítara ressoa em novo meio;
-Porém com arte cresce a antiga ofensa,
-E Lameque em vingança mais se adensa.
+Então responde a Virgem, e sua boca
+Faz-se salmo mais alto que harpa e guerra:
+“Minha alma ao grande Deus magnificando toca,
+E o meu espírito se alegra e não se encerra.
+Olhou a sua escrava humilde e pouca,
+E em mim fará memória a humana terra;
+O Poderoso, santo em nome e glória,
+Mudou em cântico a mais baixa história.
 
 **5**
 
-Mas Deus a Adão outro rebento envia,
-Sete, por quem renasce a invocação;
-Há ainda um fio de mais pura via
-Correndo oculto em meio à corrupção.
-Enoque, entre os mortais, com Deus seguia,
-Mais peregrino que a comum nação;
-Andou com Ele, e já não foi achado,
-Como sinal de um trato não quebrado.
+Derriba os altos de seus tronos vãos,
+E exalta os pequenos de alma contrita;
+Enche de bens os famintos, e as mãos
+Dos ricos deixa em sua sombra aflita.
+Lembra-se de Israel e dos seus anciãos,
+Conforme a Abraão prometera e escrita.”
+E a casa, ao som de tão celeste canto,
+Vê alegria e tremor num mesmo espanto.
 
 **6**
 
-Depois, cobrindo a terra humana enchente,
-Subiu de todo lado a iniquidade;
-Todo desenho do perverso intento
-Se inclinou sem descanso à falsidade.
-Pesou ao Céu a raça irreverente,
-Tão funda era no mundo a crueldade;
-Mas viu-se em Noé, na geração sombria,
-Um justo em cuja casa a graça ardia.
+Mas longe, em Nazaré, José pondera
+O peso do mistério que o rodeia;
+Vê que a desposada, casta e verdadeira,
+Traz sinal novo que seu peito alheia.
+Não quer infâmia para a flor inteira,
+Nem ousa condenar sem prova e ideia;
+Resolve em sombra apartar-se mansamente,
+Guardando honra à Virgem inocente.
 
 **7**
 
-Mandou-lhe Deus que levantasse a Arca,
-De tábuas fortes, betumada e larga,
-Onde um resto da vida, em santa barca,
-Passasse a salvo a universal borrasca.
-Entraram par e par, conforme a marca
-Do mando eterno que o universo embarga;
-E quando o último pé buscou guarida,
-Fechou o próprio Deus aquela entrada erguida.
+Então lhe fala em sonho o mensageiro:
+“Não temas receber Maria por esposa;
+Do Espírito lhe veio o dom inteiro,
+Não de vontade humana nem de cousa.
+Ela dará à luz o verdadeiro
+Jesus, que salvará sua gente ansiosa.”
+Desperta José, e em silenciosa lida
+Faz da obediência a forma da sua vida.
 
 **8**
 
-Rompem-se então as fontes do profundo,
-Abrem-se em cima as comportas do alto;
-Quarenta noites chora o céu no mundo,
-Quarenta dias cai sem termo o assalto.
-Sobe a torrente, e com furor rotundo
-Leva palácio e choça, vale e salto;
-Já nada fica à vista, e a serra fria
-Some nas águas o claro meio-dia.
+Sai decreto de César; move-se a terra,
+Sem saber que serve a mais alta mão.
+José sobe a Belém, e em si já encerra
+Da casa de David a antiga obrigação.
+Leva consigo a Virgem, em cuja guerra
+Com dor e glória cresce a salvação;
+E assim o Império, em seu orgulho cego,
+Serve ao desígnio que não pode ver de longe.
 
 **9**
 
-Morre a soberba em seu rumor submerso,
-Cala-se a lira, o martelo, a voz guerreira;
-Todo o caminho humano e seu comércio
-Vão como espuma de repente inteira.
-Somente a Arca, em seu madeiro imerso,
-Flutua sobre a campa da carreira;
-E nela vai, guardada por memória,
-A semente do campo e da futura glória.
+Chegados à cidade, toda cheia,
+Não acham pouso digno ao santo parto.
+Fecha-se a porta ao Rei de céu e areia,
+E ao Criador nega-se humano quarto.
+Num pobre abrigo, entre palha alheia,
+Maria sente abrir-se o tempo exato;
+E nasce em carne frágil, pobre e bela,
+O mesmo Sol que acende a clara estrela.
 
 **10**
 
-Mas não esquece Deus o justo escondido;
-Manda seu sopro, e as águas retrocedem.
-O abismo torna ao cárcere devido,
-E aos montes nus de novo os rios cedem.
-Descansa a Arca no cume erguido,
-Onde primeiro os firmes píncaros procedem;
-E Noé, entre temor e confiança,
-Espera em Deus o fim da escura mudança.
+Não rompe o infante em púrpura, ouro ou pompa,
+Mas em silêncio humilde e desarmado;
+Envolve-o a Mãe, e o feno lhe dá sombra,
+E o seio humano abriga o Incriado.
+O boi, a palha, a noite, a estreita gruta
+Fazem-se paço ao Rei há tanto esperado;
+E o mundo, que buscava alto aparato,
+Tem sua glória em menino reclinado.
 
 **11**
 
-Solta o corvo; depois a pomba alada,
-Que volta sem achar repouso à planta.
-Torna a sair, e à tarde desejada
-Traz no bico a oliva verde e santa.
-Conhece o pai que a ira foi passada,
-E já a esperança os interiores canta;
-Sai por fim a terceira mensageira,
-E o céu devolve à terra a face inteira.
+Guardavam pastores a vigília fria,
+Quando a luz do Senhor lhes cai de cima;
+Tremem de medo ante a celeste via,
+Mas logo o Anjo em paz lhes diz e anima:
+“Nasceu-vos hoje o Salvador ungido,
+Na cidade de David, vosso guia;
+Achá-lo-eis envolto em pobres panos,
+Deitado onde comem as bestas e os humanos.”
 
 **12**
 
-Egressos vão os filhos do remido,
-Com besta, ave e rebanho preservado;
-Noé levanta altar agradecido,
-E sobe a Deus perfume aceitável, grato.
-Diz o Senhor, olhando o ser ferido,
-Que não ferirá assim o chão ingrato;
-Enquanto a terra durar sob sua mão,
-Haverá semente, inverno, estio e pão.
+Abre-se então no ar sublime coro,
+Milícia do alto em jubilosa chama:
+“Glória a Deus nas alturas” — rompe o ouro
+Do som celeste sobre a escura trama —
+“E paz na terra aos homens do tesouro
+Que o seu favor visita e ama.”
+Correm os pastores, veem, e maravilhados
+Saem louvando os céus recém-rasgados.
 
 **13**
 
-Então firmou o pacto com o vivente,
-Com homem, ave, fera e mar salgado;
-Pôs seu arco nas nuvens por patente
-De que a ira não terá tal novo brado.
-Quando o céu vestir sombra penitente,
-Lembrar-se-á do juramento declarado;
-E o mesmo arco, no torvo firmamento,
-Fará da chuva um límpido sacramento.
+Guarda Maria em coração profundo
+As vozes, o presépio e o novo assombro;
+Pesa em silêncio o peso do outro mundo,
+Escondendo grandeza sob o ombro.
+Ao oitavo dia dão o nome ao Infante,
+Jesus, remédio ao humano escombro;
+E quando sobe ao templo a oferta pobre,
+Velha esperança em Simeão redobre.
 
 **14**
 
-Mas cedo a raça, do castigo vinda,
-Tornou a amar a fama e seu ruído;
-Multiplicaram-se as nações, e ainda
-O velho orgulho andava mal dormido.
-Ninrode ergueu poder, e a terra infinda
-Quis ver-se por um nome resumido;
-Disseram: “Façamos torre e cidade,
-Que vença o céu nossa comum vontade.”
+Toma o ancião nos braços a Criança,
+E rompe em paz seu longo cativeiro:
+“Agora deixa, ó Senhor, em esperança,
+Teu servo ir-se em descanso verdadeiro.
+Meus olhos viram já tua salvação,
+Luz das nações e glória do teu povo eleito.”
+Mas volta-se à Mãe e, em sombra aguda,
+Lhe mostra a espada que o futuro muda.
 
 **15**
 
-Era uma só a língua e o pensamento,
-Um só o brado, um só desordenado zelo;
-Coziam tijolo, ajuntavam cimento,
-Como se ao barro coubesse escalar o gelo.
-Desceu o Senhor a ver o vão intento,
-A máquina soberba e seu desvelo;
-E o riso com que pesa a humana empresa
-Mostrou quão leve é o pó quando se alteza.
+Também Ana, viúva vigilante,
+Louva a Deus e anuncia a redenção;
+Assim o velho templo, agonizante,
+Recebe em braços sua consumação.
+Não sabe Herodes, nem o sábio arrogante,
+O que já pulsa em tão pequena mão;
+Mas sabe a fé que a infância recolhida
+Traz em germe a restauração da vida.
 
 **16**
 
-Confundiu-lhes a voz, partiu-lhes o sentido,
-Fez estrangeiro o próximo do lado;
-O mestre já não manda ser ouvido,
-Nem entende o oficial o traço dado.
-Cessa a cidade, o sonho interrompido,
-Fica Babel por nome e por pecado;
-E as gentes, espalhadas pelo vento,
-Levaram sua língua e seu tormento.
+Longe, porém, no Oriente atento e lento,
+Homens de estudo veem sinal estranho;
+Uma estrela lhes fere o pensamento,
+Chamando-os ao Judeu mais alto e santo.
+Deixam palácio, carta e firmamento,
+E seguem pelo ermo o claro encanto;
+Pois quando o Céu escreve em viva estrela,
+Cumpre ao homem levantar-se e ir atrás dela.
 
 **17**
 
-Mas sob o grande mapa dividido,
-Seguia Deus guardando uma linhagem;
-De Sem a Héber vai o fio escolhido,
-Por anos, nomes, tendas e passagem.
-Até que em Harã vive um homem unido
-À promessa que ainda é só miragem:
-Abrão, chamado do silêncio antigo,
-Para seguir só com seu Deus amigo.
+Chegam a Herodes, que por fora inquire
+Como quem busca culto e reverência;
+Mas no íntimo lhe cresce a torpe pira
+De medo, sangue e régia concorrência.
+Aprende em Miqueias onde se prefira
+O parto real da eterna descendência;
+E envia os Magos, simulando zelo,
+Enquanto arma no escuro o seu cutelo.
 
 **18**
 
-Então falou o Senhor ao peregrino:
-“Parte de tua terra e parentela;
-Eu te mostrarei caminho e bom destino,
-E de ti farei nação grande e bela.
-Bendirei teu nome; e, por teu ensino,
-Há de florir bênção na família humana;
-Quem te bendisser, esse será guardado,
-E em ti será o universo abençoado.”
+Torna a estrela a guiar os peregrinos,
+Até parar sobre o pouso pequenino;
+Entram, prostram-se ao Menino e seus destinos,
+E dão-lhe ouro, incenso e mirra fina.
+Reconhece o saber dos longes signos
+A Majestade em forma pequenina;
+E a ciência, quando adora em vez de ser dona,
+Depõe aos pés de Deus sua coroa.
 
 **19**
 
-Não viu Abrão de antemão cidade alguma,
-Nem porto certo, nem muralha forte;
-Teve por mapa só a voz sem bruma,
-E por riqueza a fé mais alta que a sorte.
-Tomou Sarai, tomou Lot, e a suma
-Dos bens que ajuntara até aquele norte;
-E deixando para trás sepulcro e lida,
-Fez da obediência a forma de sua vida.
+Avisados em sonho, por caminho diverso
+Voltam os Magos, fugindo ao rei malvado.
+Também José recebe, em tom severo,
+Mandado de partir apressurado.
+Desce ao Egito o santo e novo exílio,
+Levando em braços o Senhor encarnado;
+E Raquel chora os filhos que a espada rouba,
+Enquanto o Dragão sua fúria dobra.
 
 **20**
 
-Assim, do sangue ao arco e à torre caída,
-Vai Deus tirando graça da ruína;
-Julga o soberbo, guarda a pouca vida,
-E abre no ermo a rota peregrina.
-Já sai Abrão, cabeça prometida,
-Buscando a terra que ainda não domina;
-E em seus passos começa a luz crescer,
-Por onde o mundo há de tornar a crer.
+Assim prossegue, escondida e verdadeira,
+A vinda do Senhor ao mundo humano:
+Entre cântico, estrela, espada e poeira,
+Vai Deus curando o mais antigo dano.
+O Egito, outrora casa cativeira,
+Abriga agora o Libertador soberano;
+E o canto aprende, vendo o Infante em fuga,
+Que a glória entra na história pela chaga.
