@@ -5,12 +5,12 @@
 **1**
 
 Já se derrama o Reino sobre a terra,
-Não como César quer, por braço armado;
+Não como César quer, por braço ousado,
 Mas como chuva mansa, que descerra
 A dura gleba ao Céu reconciliado.
 E quanto mais em mansidão se encerra,
 Mais se lhe move o mundo amotinado;
-Porque a Luz, quando mais rompe a cegueira,
+Porque a Luz, quanto mais rompe a cegueira,
 Mais acha o velho abismo à sua beira.
 
 **2**
@@ -29,20 +29,20 @@ Vencia o mundo por secreta sina.
 Ora era o grão, pequeno e florescente,
 Que excede em ramo o horto cultivado;
 Ora tesouro, em campo vil jazente,
-Por quem se vende todo o mais prezado;
-Ora era a pérola, por cujo oriente
+Por quem se vende o mais que é estimado;
+Ora a pérola, em cujo claro Oriente
 Fica o comércio antigo desprezado;
-Tal é o Céu: parece coisa breve,
+Tal é o Céu: parece cousa breve,
 Mas quanto mais se dá, mais alto se eleve.
 
 **4**
 
 Não só por voz, porém, mas por patente,
-O Rei mandou os Doze ao povo errado;
-Curavam mal, pregavam penitente,
-Fazendo ao Inferno o reino abalado.
-Saía a paz de casa em casa ardente,
-Se achava o peito humilde aparelhado;
+Mandou os Doze ao povo desgarrado;
+Curavam, pregavam, e o Inferno ardente
+Via seu reino em breve abalado.
+Saía a paz de casa em casa, e a mente
+Se abria ao dom do Céu comunicado;
 Mas vendo o mundo tal progresso aceso,
 Mais apertava ao Justo o laço e o peso.
 
@@ -50,10 +50,10 @@ Mais apertava ao Justo o laço e o peso.
 
 Doutores, fariseus, toda a má gente,
 Buscavam no Senhor algum pecado;
-Perguntam do tributo, do presente,
+Perguntam do tributo e do presente,
 Do sábado, do rito e do passado.
 Mas toda a astúcia, em si mesma imprudente,
-Caía ante o seu verbo temperado;
+Caía ante seu verbo moderado;
 Que a Lei, por ele em luz melhor entendida,
 Não mata o homem, antes lhe dá vida.
 
@@ -71,7 +71,7 @@ Trocada em glosa, preço e vil rumor.
 **7**
 
 Também os seus, por vezes, lentamente,
-Tomavam mal o verbo enunciado;
+Tomavam mal o verbo pronunciado;
 Queria Pedro o Reino sem a frente
 Da Cruz, nem o caminho ensanguentado.
 Mas Cristo lhe responde asperamente,
@@ -85,18 +85,18 @@ Então os leva ao monte eminente,
 A Pedro, Tiago e João, por seu cuidado;
 E ali seu rosto, em lume refulgente,
 Deixa o comum aspecto transmudado.
-Branqueja a veste em raio transparente,
+Branqueja a veste em raio reluzente,
 Mais que o primeiro Sol esclarecido;
 Moisés e Elias falam-lhe ao lado,
 Do Êxodo futuro já traçado.
 
 **9**
 
-Cai dos discípulos o medo tremente,
+Cai dos discípulos o medo ardente,
 E Pedro quer fixar o bem mostrado;
-Mas soa do alto o testemunho ardente,
+Mas soa do alto o testemunho ingente,
 Do Pai, sobre o Filho declarado:
-"Ouvi-o." E tudo, em véu obediente,
+“Ouvi-o.” E tudo, em véu obediente,
 Torna ao silêncio do monte sagrado;
 Porque não basta à fé sabor de altura,
 Se não desce depois à noite escura.
@@ -105,7 +105,7 @@ Se não desce depois à noite escura.
 
 Desce o Senhor, e logo ao pé presente
 Encontra um triste moço atormentado;
-Rasgava-o a treva, em ímpeto veemente,
+Rasgava-o a treva em ímpeto veemente,
 Sem que o pai lhe valesse algum cuidado.
 Manda o Cristo, e o espírito fremente
 Foge do corpo ao pó precipitado;
@@ -120,7 +120,7 @@ Outros, matá-lo em zelo impenitente,
 Para guardar o rito acostumado.
 Mas ele segue, em passo obediente,
 Lendo em Jerusalém futuro fado;
-Cada jornada o leva ao sacrificio,
+Cada jornada o leva ao sacrifício,
 Sem que recuse o Pai, nem seu ofício.
 
 **12**
@@ -148,10 +148,10 @@ E uns creem em Deus, e outros odeiam Cristo.
 **14**
 
 Reúne-se o conselho diligente,
-E Caifás fala em cálculo encerrado:
-"Melhor que um só padeça pela gente,
-Do que ver todo o povo arruinado."
-Falava em arte vil e em fim prudente,
+E Caifás fala em cálculo cerrado:
+“Melhor que um só padeça pela gente,
+Do que ver todo o povo arruinado.”
+Falava em arte vil e fim prudente,
 Mas foi profeta, sem o ter cuidado;
 Que Deus lhe toma a voz, torcendo a trama,
 E faz de vil conselho eterna chama.
@@ -163,7 +163,7 @@ Unge ao Senhor, com gesto derramado;
 Cheira a casa a sepulcro e a bem presente,
 Como a um trono em dor antecipado.
 O amor, que vê mais longe e mais ardente,
-Conhece o rei antes de coroado;
+Conhece o Rei antes de coroado;
 E enquanto Judas vende o Mestre amado,
 Já o nardo proclama o seu reinado.
 
@@ -171,7 +171,7 @@ Já o nardo proclama o seu reinado.
 
 Assim caminha o Rei, manso e valente,
 Para Sião e o termo assinalado;
-Leva no rosto o paz de quem consente,
+Leva no rosto a paz de quem consente,
 Não ao destino cego, mas ao mandado.
 Já tudo o chama ao trance iminente:
 A Ceia, a Noite, o Lenho e o desamparo;
