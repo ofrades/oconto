@@ -1,4 +1,3 @@
-- Reestruturar `canto_VII.md` como livro das origens lembrado em chave de Emaús: criação, queda, Abel, dilúvio, Babel, Abraão, Isaac, Jacó e José como figuras que convergem para Cristo.
 - Reestruturar `canto_VIII.md` como Lei, êxodo, deserto e reino à luz do Ressuscitado, evitando reinício cronológico plano.
 - Reestruturar `canto_IX.md` como profetas, exílio e espera messiânica, explicitamente orientado para a Anunciação e a Páscoa.
 - Refinar `canto_X.md` para manter Pentecostes, missão, martírio, Apocalipse e Nova Jerusalém como consumação eucatastófica.
