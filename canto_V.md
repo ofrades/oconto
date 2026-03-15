@@ -5,31 +5,31 @@
 **1**
 
 Mas antes que o Cordeiro ao lenho suba,
-Convém buscar as fontes do pecado;
-Ver como o mundo, em sua culpa e turba,
-Pedia em sombra o Médico esperado.
-Não por tornar atrás a antiga curva,
+Convém sondar as fontes do pecado;
+Ver como o mundo, em sua escura turba,
+Chamava já o Médico esperado.
+Não por tornar atrás em vã curva,
 Como quem perde o fio começado,
-Mas por firmar no início a base escura,
-Donde há de rebentar maior ventura.
+Mas por firmar, no abismo da origem dura,
+A raiz da futura formosura.
 
 **2**
 
 No princípio falou o Verbo eterno,
 E o nada ouviu a voz que o fez criado;
 Da treva se apartou o claro e terno,
-Do caos se fez o número ordenado.
+Do caos nasceu o número ordenado.
 Nasceu o mar, o firmamento superno,
 O peixe, a ave, o campo semeado;
 E tudo era formoso, porque vinha
-Da Mão que em paz ao ser medida punha.
+Da Mão que ao ser medida e paz continha.
 
 **3**
 
 Por fim do pó formou o homem primeiro,
 E à sua imagem o chamou à glória;
 Deu-lhe jardim, trabalho sem cativeiro,
-E a tarde por comércio e por memória.
+E a tarde por convívio e por memória.
 Do lado lhe tirou auxílio verdadeiro,
 Para fazer dos dois uma só história;
 Era o Éden mais que pomar florido,
@@ -62,7 +62,7 @@ Nascia ao mundo a primeira medicina.
 Logo Abel cai sob o irmão cioso,
 Primeiro justo em sangue derramado;
 Clama da terra o brado piedoso,
-Pedindo ao Céu vingança e cuidado.
+Pedindo ao Céu vingança e mais cuidado.
 Foge Caim, com rosto temeroso,
 Levando a marca e o peito desvairado;
 Mas no pastor, ao campo já deposto,
@@ -74,7 +74,7 @@ Cresceu depois a raça vária e forte,
 Mas cresceu mais o mal em resistência;
 Pesou a Deus a universal desordem,
 Toda inclinada à torpe violência.
-Noé, porém, guardava em santa ordem
+Noé, porém, guardava em santa ordem,
 A antiga luz da reta obediência;
 E a Arca, em mar de culpa submergida,
 Levou sobre a água um resto da alta vida.
@@ -82,7 +82,7 @@ Levou sobre a água um resto da alta vida.
 **8**
 
 Rompem-se as fontes do profundo aberto,
-E as janelas do céu chovem ruína;
+E as janelas do Céu chovem ruína;
 Cai o soberbo, perde o mundo o acerto,
 E a morte em toda parte se avizinha.
 Mas flutua a Arca, em madeiro coberto,
@@ -142,7 +142,7 @@ Luta com Deus, e ao despontar brilhante
 Sai manco, mas de bênção mais coberto.
 A escada entre o barro vacilante
 E a glória já dizia o eterno Acerto;
-Prometia ao mundo em sinal subido,
+Prometia ao mundo, em sinal subido,
 O Mediador futuro e prometido.
 
 **14**
@@ -159,7 +159,7 @@ Prefigura em si Cristo e sua história.
 **15**
 
 Quando os irmãos se prostram sem sabê-lo,
-Cumpre-se o sonho antigo e a providência;
+Cumpre-se o sonho antigo e a Providência;
 Chora José, e ao revelar-se inteiro,
 Mostra perdão maior que a violência.
 “Não fostes vós somente” — diz primeiro —

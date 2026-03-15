@@ -1,3 +1,3 @@
-- Continuar um canto por vez a passada de originalidade, auditando aberturas e passagens excessivamente camonianas por imitação direta, começando por `canto_III.md`.
+- Continuar um canto por vez a passada de originalidade, auditando aberturas e passagens excessivamente camonianas por imitação direta, agora a partir de `canto_IV.md`.
 - Onde útil, usar soluções mais próprias, mais bíblicas e mais vieirianas na energia retórica, sem perder a forma épica.
-- Depois seguir por `canto_IV.md`–`canto_X.md`, reduzindo calques evidentes, sobretudo em proposições locais, invocações implícitas e fechos demasiado camonianos.
+- Depois seguir por `canto_V.md`–`canto_X.md`, reduzindo calques evidentes, sobretudo em proposições locais, entradas de cena e fechos demasiado camonianos.
