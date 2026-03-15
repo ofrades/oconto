@@ -2,7 +2,8 @@
 
 ## Goal
 
-Revise the completed 10-canto biblical epic so that its verse obeys the formal discipline of Camões more rigorously: each stanza should move toward **ottava rima camoniana** (especially **ABABABCC**), with stronger end-rhyme, more regular epic cadence, and diction closer to the high Portuguese register of Camões, with freedom to import lexical and rhetorical energy from **Padre António Vieira**.
+Audit every line of the 10 cantos for strict decasyllabic scansion.
+Fix lines that fail. Report the number of cantos fully passing scansion as the metric.
 
 ## Vision
 
@@ -33,6 +34,7 @@ This poem is a Christian epic: **Camões in form, Scripture in substance, Tolkie
 ## Current Structural Commitments
 
 Keep the corrected architecture already established:
+
 1. `canto_I.md` — Proémio e Anunciação
 2. `canto_II.md` — Advento oculto
 3. `canto_III.md` — Manifestação do Filho
@@ -55,3 +57,14 @@ The following texts are in `./data/` and must be studied before writing or revis
 ## Output
 
 Revise the cantos so the finished poem keeps the corrected architecture while also following Camonian stanza discipline much more rigorously. Keep output in `canto_I.md` through `canto_X.md`.
+
+## Metric
+
+After writing each canto, evaluate it yourself on a scale of 0–10 for:
+
+- formal rigor (oitava rima, meter)
+- epic grandeur (Homer, Virgil, Camões)
+- theological fidelity (Vulgate)
+- essay inspiration (Tolkien)
+
+Report the average as the metric. Only keep the canto if it scores above the previous best.
