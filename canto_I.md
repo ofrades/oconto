@@ -1,205 +1,223 @@
 # Canto I
 
-## Argumento
-
-O Poeta rejeita as musas fingidas das gentílicas fábulas e invoca o Espírito do Deus vivente, para cantar não feitos sonhados, mas a verdadeira origem do mundo e do homem. Narra-se a criação dos céus e da terra, a ordenação da luz, dos astros, das águas, dos viventes, e, por fim, a feitura de Adão e Eva no jardim de delícias. Segue-se a astúcia da serpente, a queda dos primeiros pais, a vergonha, o juízo e a expulsão do Paraíso. Todavia, no mesmo decreto em que o homem é ferido, já resplandece a primeira promessa de vitória: virá da Mulher aquele que esmagará a cabeça do antigo enganador.
-
 ## Versos
 
 **1**
 
 Não canto os vãos troféus da humana glória,
-Nem reino algum que o largo mar dilata;
-Canto a primeira e sempiterna história,
-Que a Mão sem par em luz e ser desata.
-Se Grécia e Lácio exaltam sua memória,
-Co’a tuba vã que o mundo aclama e acata,
-Eu subo mais: do Eterno a alta vitória,
-Que tudo cria, ordena, julga e resgata.
+Nem do Nauta gentil o lenho ousado;
+Canto a maior e veríssima memória,
+Do Verbo eterno ao tempo já enviado.
+Se Grécia e Lácio fingem sua vitória,
+Com nume vão e canto levantado,
+Aqui se canta a história que responde
+Ao mundo inteiro, e nele se lhe esconde.
 
 **2**
 
 Calem-se Apolo, as Ninfas e Helicona,
-Que aqui não valem sombras por verdade;
-Outra é a fonte que a meu peito abona,
-Outro o clarão que vence a antiguidade.
-Vem, santo Espírito, pomba e viva chama,
-Reger-me a voz, domar-me a mocidade;
-Dá-me um dizer que, humilde, alto se inflama,
-E sirva à Fé com grave majestade.
+Que não governam céus nem desconsolo;
+Outra é a Fonte que meu canto abona,
+Outro o clarão que vence a sombra e dolo.
+Vem, Santo Espírito, pomba e viva chama,
+Reger-me a voz, quebrar-me o engenho tolo;
+Dá-me um dizer ao mesmo tempo grave e terno,
+Digno do pó e digno do Eterno.
 
 **3**
 
-No princípio, antes tempo e criatura,
-Jazia informe a terra, escura e fria;
-Cobria o abismo a tenebrosa espessura,
-Sem rota, sem rumor, sem melodia.
-Mas sobre as águas ia a Mão mais pura,
-O Espírito de Deus, que as sustinha;
-E o caos, que em si nenhuma lei trazia,
-Tremeu, sentindo perto a Monarquia.
+Não quero abrir o canto no princípio
+Da luz primeira e do jardim florido;
+Abre-se aqui onde o celeste anúncio
+Começa a refazer o ser caído.
+Já jaz o mundo em velho precipício,
+Já geme Adão em seu desterro antigo;
+Mas eis que a Prometida aurora avança,
+E entra em casa humilde a Esperança.
 
 **4**
 
-Então falou o Autor, e a voz divina,
-Sem ferro, fogo, ou braço que a secunde,
-Fez nascer a manhã da noite indina,
-E o claro raio as trevas já confunde.
-Viu Deus a luz, e a luz em si destina
-Ao giro justo com que o dia funde;
-Ficou a noite em seu limite escuro,
-E o tempo abriu seu curso mal seguro.
+Em Nazaré, de pouca fama ao mundo,
+Vivia uma donzela recolhida;
+Mais rica em fé que em ouro rubicundo,
+Mais alta em graça que em rumor de vida.
+David em sombra, Abraão em voto profundo,
+Profetas em vigília dolorida,
+Tudo esperava ali, sem som nem guerra,
+No seio pobre de uma filha da terra.
 
 **5**
 
-Firmou depois o Céu, sereno e puro,
-E às águas repartiu diverso assento;
-Mandou que o mar guardasse o extremo muro,
-E a terra erguesse o verde ornamento.
-Saiu da gleba o tronco, o fruto maduro,
-A erva, a flor, a espiga ao brando vento;
-E viu-se em cada forma produzida
-A larga liberalidade da Vida.
+Não vinha armada em pompa soberana,
+Nem tinha corte, trompa ou aparato;
+Fiava, orava, humilde e sempre humana,
+Sob o olhar do Senhor secreto e grato.
+Mas sobre a Casa outrora davídica e santa
+Pesava já de séculos o trato;
+E a Virgem, sem saber toda a grandeza,
+Guardava em si de Sião a singeleza.
 
 **6**
 
-Acendeu no alto carro o Sol dourado,
-E à Lua deu mais brando senhorio;
-Semeou pelo azul lustroso prado
-Os astros, por sinal de mês e estio.
-Depois povoou o abismo salso e irado,
-E encheu de asas o transparente rio;
-Saltou a fera, o peixe, a ave sonora,
-Cada qual bendizendo a seu Autor agora.
+Então do alto desceu por claro raio
+O Mensageiro da mais alta esfera;
+Não como engano vão, nem doce ensaio
+De sonho leve que ao despertar se altera,
+Mas como aquele que, rompendo a treva
+Da antiga noite, a própria verdade leva.
+Enche-se o aposento de tremor e lume,
+Como se o Céu baixasse ao seu costume.
 
 **7**
 
-Mas quando a obra subiu ao cume e meta,
-Disse o Senhor com mais interno agrado:
-"Façamos homem, viva imagem nossa,
-De nosso ser e mando derivado."
-Tomou do pó figura mais secreta,
-E ao barro vil soprou alento honrado;
-Levantou-se Adão, novo senhor do mundo,
-Com céu no peito e pó no ser profundo.
+“Deus te salve”, lhe diz, “cheia de graça;
+Contigo está o Senhor, flor sem segunda.”
+Turba-se a Virgem casta à estranha praça,
+E pesa o som na alma mais profunda.
+Nunca vaidade em seu pensar se enlaça,
+Nem busca para si honra do mundo;
+Antes inquire, em humilde sobressalto,
+Que saudação é esta, vinda do Alto.
 
 **8**
 
-Deu-lhe jardim de delícia e de frescura,
-Onde o rio em quatro braços se partia;
-Ali nenhuma espinha, dor, ou dura
-Memória de morrer se conhecia.
-Passavam besta e ave em paz segura,
-Recebendo de Adão nome e valia;
-E o homem via em toda cousa criada
-A bondade de Deus representada.
+Então o Anjo, em voz de paz severa,
+Lhe diz: “Maria, não receies nada;
+Achaste graça aos olhos de quem gera
+O ser do nada e o sustém sem espada.
+Conceberás um Filho em primavera
+Que não terá no mundo igual morada;
+Jesus será seu nome, e sua realeza
+Não terá termo, queda, nem pobreza.
 
 **9**
 
-Mas porque ao rei da terra não convinha
-Viver sem par que ao seu amor responda,
-Do lado lhe tirou costela fina,
-Enquanto o sono os membros lhe afunda.
-Formou da carne a companheira digna,
-Suave consorte, bela e sem segunda;
-E Adão, vendo-a sair de si formada,
-Chamou-lhe osso de osso, e carne amada.
+Dar-lhe-á o Senhor o trono prometido
+A David, teu maior, em tempos idos;
+Reinará para sempre, e o som vencido
+Dos séculos lhe servirá rendido.
+Nele será Jacó restituído,
+Nele os cativos mais antigos ouvidos;
+Seu Reino não conhece ocaso ou termo,
+Nem se corrompe em ferro, pó ou ermo.”
 
 **10**
 
-Andavam ambos nus, sem pejo ou guerra,
-Vestidos só de graça e inocência;
-Era o labor prazer, e a própria terra
-Pagava sem suor larga obediência.
-Ao cair da tarde, o Rei do Céu descera
-Ao horto em mansa e doce permanência;
-E o homem, sem temer juízo ou dano,
-Ouvia a voz de Deus como a de humano.
+Ouve Maria e, sem negar a altura,
+Pergunta com pudor, não com desdém:
+“Como será, se em minha carne pura
+Não entrou varão algum, nem quero além?”
+Não é dúvida ímpia, escura e dura,
+Mas zelo casto que melhor convém;
+Quer saber como a graça, sem feri-la,
+Fará do próprio corpo nova argila.
 
 **11**
 
-Então rompeu, com língua mel e espada,
-A Serpe antiga, astuta e revoltosa,
-Que, vendo a criatura tão honrada,
-Ardeu de inveja em sanha venenosa.
-À mulher disse: "É vedada a entrada
-Ao fruto que vos faz mais venturosa?"
-E pôs no bem mandado a névoa escura,
-Fazendo da suspeita uma fissura.
+Responde então o Anjo luminoso:
+“Sobre ti virá o Espírito divino;
+Cobrir-te-á sua sombra em santo pouso,
+Sem peso vil, sem nó carnal, sem tino.
+Por isso o Santo fruto glorioso,
+Que brotará de ti por tal caminho,
+Será chamado Filho do Deus forte,
+Senhor da vida e vencedor da morte.
 
 **12**
 
-"Não morrereis", mentiu; "antes, num dia,
-Sereis como altos deuses no saber."
-Olhou a esposa, e a falsa senhoria
-Lhe pareceu formosa de colher.
-Tomou, comeu; depois ao homem trazia
-O dom mortal que o fez desfalecer;
-E entrando a culpa pelos olhos belos,
-Caiu com eles todo o mundo neles.
+Eis Isabel, que em sua idade extrema
+Traz no escondido ventre nova vida;
+Já o deserto se prepara ao tema,
+Já a esterilidade é convertida.
+Porque nenhum decreto do Supremo
+Encontra porta fechada ou vencida;
+Quando Ele fala, o ermo cria flores,
+E o seio seco aprende novos ardores.”
 
 **13**
 
-Logo se lhes abriu triste ciência,
-Não de altos bens, mas da miséria achada;
-Vestiu-se a alma de súbita indigência,
-E a carne se sentiu desconcertada.
-De folhas tecem vã cobertura escassa,
-Mal encobrindo a culpa revelada;
-E à voz do Senhor, que o vergel corria,
-Fogem do bem que antes os refazia.
+Ao som de tal recado se recolhe
+Em Maria o passado e o porvir inteiro;
+Lembra-se em sombra a antiga voz que acolhe
+A guerra prometida ao Dragão primeiro.
+Eve, que outrora ao engano abriu a porta,
+Vê de longe o remédio verdadeiro;
+Abraão entrevê, no fruto prometido,
+O universal banquete pressentido.
 
 **14**
 
-"Adão, onde estás tu?" soou no vento;
-E o réu tremeu de ouvir-se procurado.
-Confessa o medo, o nu descobrimento,
-Mas lança em outrem o delito obrado.
-Culpa o varão a esposa, e o pensamento
-Da esposa acusa a Serpe do pecado;
-Assim a culpa, em vez de arrependida,
-Multiplica no escuro sua ferida.
+David revê seu trono, não na espada,
+Mas em manso esplendor mais poderoso;
+Isaías torna a Virgem anunciada,
+Miqueias vê Belém de brilho novo.
+Toda profecia, outrora semeada,
+Levanta agora o espigão viçoso;
+E a história, que andara em sombra e espera,
+Sente no ar a sua primavera.
 
 **15**
 
-Saiu então a justa e alta sentença:
-Rastejarás, Serpe, em pó abatida;
-Haverá entre ti e a Mulher diferença,
-Guerra mortal, perpétua e não fingida.
-Ela dará ao mundo a descendência
-Que há de pisar-te a fronte envenenada;
-E tu, mordendo o calcanhar sagrado,
-Serás por fim de todo aniquilado.
+Cala-se o mundo um breve e alto instante;
+Parece que as esferas aguardavam,
+Que a terra, o mar, o abismo palpitante,
+E os coros do alto em reverência estavam.
+Não por fraqueza do querer constante,
+Mas porque os céus o sim da Virgem amam;
+Quis Deus honrar, sem diminuir seu mando,
+A livre obediência do barro amando.
 
 **16**
 
-À mulher coube dor; ao homem, terra
-Que em cardos lhe tornasse o pão tardio;
-Com suor compraria a paz da guerra,
-Até volver ao pó de onde saíra frio.
-Mas mesmo ali, no meio da aspra pena,
-Brilhou de longe um raio menos frio:
-Que o golpe dado à mísera natura
-Não venceria a última Ventura.
+Então responde a serva mais ditosa:
+“Eis aqui do Senhor a humilde escrava;
+Faça-se em mim tua palavra gloriosa,
+Como o Céu manda e a Verdade trava.”
+Não sai de sua boca voz medrosa,
+Mas rendição mais forte que a que brava
+Legião jamais mostrou em campo armado:
+Vence o orgulho um coração inclinado.
 
 **17**
 
-Fez-lhes Deus túnicas, sinal piedoso,
-Que a ira não consome a antiga aliança;
-E lançou-os do vergel deleitoso,
-Não sem juízo, mas também esperança.
-Posto o Querubim e o ferro luminoso,
-Guardou-se a via da árvore da bonança;
-Perdeu-se o Éden à raça decaída,
-Mas não se perdeu Deus da humana vida.
+No mesmo instante em que a resposta sobe,
+Desce mais fundo a graça inominada;
+O Verbo eterno à nossa carne acode,
+Sem deixar a alta glória jamais deixada.
+Fecha-se o abismo antigo; e o Céu descobre
+Na Virgem sua tenda desejada;
+Cabe no seio de mulher terrestre
+Aquele a quem não basta o céu celeste.
 
 **18**
 
-Aqui começa a longa e alta jornada,
-De sangue, altar, dilúvio e romaria;
-Há de correr a estirpe desterrada
-Por sombra, lei, combate e profecia.
-Porém desde esta aurora maculada
-Já canta oculto a graça sua harmonia:
-Se a queda abriu no mundo a escura dor,
-Maior será no fim o Redentor.
+Nem ouro, nem clarim, nem trompa forte
+Saudaram logo o Rei que assim descera;
+Veio escondido, para dar à morte
+Golpe mais fundo que o da lança fera.
+Tomou de nós a carne, o peso e a sorte,
+Sem tomar culpa, nódoa ou sombra mera;
+E o que criara estrelas e bonanças
+Bate agora no peito em infantis esperanças.
+
+**19**
+
+Aqui começa a grande e vera história,
+Não por princípio nu, mas por cumprimento;
+O Éden perdido aguarda a nova glória,
+O exílio ouve mais doce mandamento.
+Já tem raiz no tempo a alta vitória
+Que há de rasgar a noite e o monumento;
+E desde o "fiat" da donzela pura
+Move-se à cruz a eterna formosura.
+
+**20**
+
+Cantai, pois, céus; e tu, ó terra, atende,
+Que em Nazaré se acende a nova aurora.
+Do quarto pobre a eternidade pende,
+E o mundo antigo em novo ser melhora.
+Se em Eva a antiga ruína ao pó desce,
+Em Maria a esperança se restaura;
+E o Poeta, vendo o Verbo em carne humana,
+Abre seu canto onde a graça soberana.
