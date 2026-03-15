@@ -202,13 +202,21 @@ body {
 
 /* ── Description prose (landing) ───────────────────────────── */
 
+.description-block {
+  margin-bottom: 1rem;
+}
+
 .description {
   font-family: var(--font-serif);
-  font-size: 1.05rem;
-  line-height: 1.85;
-  color: var(--text-muted);
-  margin-bottom: 3.5rem;
-  text-align: center;
+  font-size: 1.08rem;
+  line-height: 1.9;
+  color: var(--text);
+  margin-bottom: 1.5rem;
+  text-align: left;
+}
+
+.description em {
+  font-style: italic;
 }
 
 /* ── Canto index (landing) ──────────────────────────────────── */
@@ -282,10 +290,10 @@ body {
 
 .canto-summary {
   font-family: var(--font-sans);
-  font-size: 0.75rem;
+  font-size: 0.8rem;
   color: var(--text-muted);
-  margin-top: 0.2rem;
-  line-height: 1.4;
+  margin-top: 0.35rem;
+  line-height: 1.55;
   font-weight: 300;
 }
 
@@ -300,6 +308,52 @@ body {
 .canto-link:hover .canto-arrow {
   color: var(--gold);
   transform: translateX(3px);
+}
+
+/* ── Sources section (landing) ──────────────────────────────── */
+
+.sources-block {
+  margin-bottom: 5rem;
+}
+
+.sources-heading {
+  font-family: var(--font-sans);
+  font-size: 0.68rem;
+  font-weight: 500;
+  letter-spacing: 0.18em;
+  text-transform: uppercase;
+  color: var(--text-muted);
+  margin-bottom: 1.5rem;
+}
+
+.sources-list {
+  border-top: 1px solid var(--border);
+}
+
+.sources-list dt {
+  font-family: var(--font-serif);
+  font-size: 1rem;
+  font-style: italic;
+  font-weight: 400;
+  color: var(--text);
+  padding-top: 1.25rem;
+  margin-bottom: 0.4rem;
+}
+
+.sources-list dd {
+  font-family: var(--font-sans);
+  font-size: 0.8rem;
+  font-weight: 300;
+  line-height: 1.65;
+  color: var(--text-muted);
+  margin-left: 0;
+  padding-bottom: 1.25rem;
+  border-bottom: 1px solid var(--border);
+}
+
+.sources-list dd em {
+  font-style: italic;
+  color: var(--text);
 }
 
 /* ── Canto reader page ──────────────────────────────────────── */
