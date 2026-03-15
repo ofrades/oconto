@@ -1,7 +1,4 @@
-- Revisar `canto_I.md`–`canto_X.md` quando o ciclo de 10 cantos estiver completo, para unificar melhor o proémio, a invocação e a arquitetura global **in media res**.
-- Caminho restante: José, a descida ao Egito e a preservação providencial da casa de Israel.
-- Caminho restante: Êxodo, Páscoa, Mar Vermelho e o nascimento litúrgico do povo libertado.
-- Caminho restante: Sinai, aliança, tabernáculo, deserto, Moisés, Josué, Jordão e Jericó como transição para a terra.
-- Caminho restante: juízes, Samuel, Saul, Davi e Salomão, mostrando auge e fratura do reino.
-- Caminho restante: profetas, divisão, queda de Samaria e Jerusalém, exílio e retorno.
-- Caminho restante: encarnação, ministério, paixão, ressurreição, Igreja e consumação apocalíptica.
+- Caminho restante: Êxodo final — pragas, Páscoa, morte dos primogênitos, saída do Egito e travessia do Mar Vermelho.
+- Caminho restante: Sinai e deserto — aliança, Decálogo, bezerro de ouro, renovação da aliança, tabernáculo, serpente de bronze, Balaão e Nebo.
+- Caminho restante: terra, reino e exílio — Josué, Jordão, Jericó, juízes, Samuel, Saul, Davi, Salomão, divisão, profetas, queda de Samaria e Jerusalém, exílio e retorno.
+- Caminho restante: consumação cristã — encarnação, ministério, paixão, ressurreição, Igreja e Apocalipse.
