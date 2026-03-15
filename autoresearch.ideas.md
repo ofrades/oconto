@@ -1,4 +1,0 @@
-- Caminho restante: Êxodo final — pragas, Páscoa, morte dos primogênitos, saída do Egito e travessia do Mar Vermelho.
-- Caminho restante: Sinai e deserto — aliança, Decálogo, bezerro de ouro, renovação da aliança, tabernáculo, serpente de bronze, Balaão e Nebo.
-- Caminho restante: terra, reino e exílio — Josué, Jordão, Jericó, juízes, Samuel, Saul, Davi, Salomão, divisão, profetas, queda de Samaria e Jerusalém, exílio e retorno.
-- Caminho restante: consumação cristã — encarnação, ministério, paixão, ressurreição, Igreja e Apocalipse.
