@@ -4,220 +4,220 @@
 
 **1**
 
-Depois da Lei, do reino e do santuário,
-Abre-se a noite dos profetas e do exílio;
-Mas não é noite vã, sem comentário:
-Nela arde ainda o prometido auxílio.
-Lida após Cristo, tal idade e horário
-Não é só ruína, espada e desterro hostil;
-É a longa espera em que a esperança chora,
-Até que Gabriel a faça aurora.
+Chega afinal a noite desejada,
+Em que a antiga Páscoa encontra seu sentido;
+Busca-se a sala alta, preparada,
+Para o cordeiro e o grupo reunido.
+Sabe o Senhor que a hora está chegada
+De passar deste mundo ao Pai querido;
+E amando os seus até o extremo amado,
+Cinge a toalha ao corpo já inclinado.
 
 **2**
 
-Divide-se o reino após Salomão,
-E a glória exterior se parte em duas;
-Efraim e Judá, sem um só coração,
-Seguem por montes, bezerros e ruas.
-Faz-se política da religião,
-E a aliança se vende a mãos cruas;
-Mas Deus não deixa, em meio à apostasia,
-De acender no escuro a sua profecia.
+Lava-lhes os pés o Rei do universo,
+Confundindo a grandeza e o pensamento;
+Pedro recusa o gesto mais submerso,
+Sem ver no serviço o régio fundamento.
+Mas Cristo o adverte em ensino terso:
+"Se eu te não lavar, ficas sem meu tento."
+Aprendem os discípulos, por água e pó,
+Que reina o Maior fazendo-se menor.
 
 **3**
 
-Surge Elias, como fogo em veste rude,
-Contra reis e altares mentirosos;
-Fecha os céus, abre-os depois, e o povo ilude
-Menos que o profeta aos ídolos pomposos.
-No Carmelo mostra a santa plenitude
-Do Deus vivo ante os baais enganadores;
-E em Horeb, na voz mansa e delicada,
-Aprende que a força de Deus é mais velada.
+Sentado à mesa, toma o pão nas mãos,
+Bendiz, reparte, e dá-o aos companheiros:
+"Tomai e comei; este sou eu por vós,
+Corpo entregue em amor verdadeiro."
+Toma depois o cálice, e os corações
+Se curvam ante o dom inteiro:
+"Este é meu sangue, nova e eterna aliança,
+Que por muitos se verte em remissão e esperança."
 
 **4**
 
-Vem Eliseu, em dupla porção de espírito,
-Com óleo, pão e cura entre os pequenos;
-Purifica a fonte, multiplica o trigo,
-Ressuscita o filho e sara os enfermos.
-Assim, em sinais de graça e benefício,
-Deus mostra ao povo, em seus caminhos ermos,
-Que não quer só ferir por disciplina,
-Mas restaurar a pobre raça arruinada.
+Cala-se o mundo ante o augusto excesso:
+A Páscoa antiga acha o seu Cordeiro;
+O maná, o altar, o sangue posto ao umbral espesso,
+Tudo se cumpre ali, mais verdadeiro.
+Não é figura já, mas real acesso
+Do próprio Deus em pão e vinho inteiro;
+Mas junto ao dom já se adensa a altura
+Da noite que fará sangrar a criatura.
 
 **5**
 
-Levantam-se então vozes mais severas:
-Amós, Oséias, Miqueias, Joel;
-Denunciam luxo, fraude e primaveras
-De culto sem justiça ante Israel.
-Não basta o sacrifício, as festas e bandeiras,
-Se o órfão jaz sem pão e o pobre sem papel;
-Quer Deus misericórdia e conhecimento,
-Mais que gordura vã em altar sangrento.
+Judas traz no peito a sombra escura,
+E o Mestre o mostra sem ferir a mesa;
+Dá ainda ao traidor lugar e ternura,
+Sem diminuir a santa firmeza.
+Sai ele à rua; e mais se fecha a altura
+Do ar noturno em sua vil baixeza.
+Era noite — e no breu do coração vendido
+Entrava o príncipe antigo e enfurecido.
 
 **6**
 
-Isaías vê o Senhor em alta glória,
-Com serafins cobrindo face e voo;
-Sente-se impuro, e o carvão da santa história
-Lhe toca os lábios para o duro enjoo.
-Canta depois o Ramo, a Virgem e a vitória,
-O Servo sofredor, manso e tão bom,
-Que levará sobre si nossa ferida,
-E dará pela morte ao mundo vida.
+Fala Jesus do amor por mandamento novo,
+Da videira e dos ramos em seu ser,
+Do ódio do mundo contra o santo povo,
+Da paz que nEle só se pode ter.
+Promete o Espírito, consolador e fogo,
+Que há de ensinar, lembrar e fortalecer;
+E eleva ao Pai a sacerdotal rogativa,
+Guardando em prece sua grei cativa.
 
 **7**
 
-Jeremias chora a cidade impenitente,
-Leva no peito o peso de seu povo;
-Vê vir do norte o açoite diligente,
-E anuncia aliança em molde novo.
-Não mais só em pedra, exterior e patente,
-Mas no mais íntimo do coração renovo;
-E essa promessa, em lágrimas escrita,
-Já busca a mesa onde o pão se reparte.
+Sai depois ao jardim de Getsêmani,
+Levando Pedro, Tiago e João consigo;
+O peso da hora cai-lhe sobre a carne,
+E a alma geme em pavor sem ter castigo.
+Não foge à dor, nem busca alívio vário,
+Mas prostra-se ante o cálice inimigo:
+"Se possível, passe; contudo, seja
+Não o que eu quero, Pai, mas o que tua vontade deseja."
 
 **8**
 
-Mas Samaria cai sob mão assíria,
-Porque trocou o Santo por vaidade;
-Desce a cidade ao pó, e a ímpia Síria
-Leva dispersa a sua identidade.
-Judá, em vez de temer igual martírio,
-Imita o mal e abraça a iniquidade;
-Até que Babilónia, em roxa fúria,
-Sobe contra Sião com longa injúria.
+Sua em sangue o Novo Adão no horto,
+Vencendo ali a antiga rebeldia;
+Onde o primeiro em flor perdeu conforto,
+Ganha o Segundo em suor a nova via.
+Dormem os seus, de tristeza quase mortos,
+E o Anjo o fortalece em agonia;
+Até que ao longe chega a turba armada,
+Guiada por um beijo e por espada.
 
 **9**
 
-Arde o templo, quebra-se o muro,
-Cala-se a harpa junto ao altar caído;
-Vai o povo em choro escuro,
-Com o santo nome em terra alheia ido.
-Parece que o pacto, outrora seguro,
-Ficou no pó de vez desmentido;
-Mas mesmo em cinza, pelo Céu mantida,
-Segue a promessa mais funda que a ferida.
+"Amigo, a que vieste?" — assim responde
+Ao traidor o Senhor, sem vil aspereza.
+Cai por terra a coorte, quando ele esconde
+No simples "Eu sou" a eterna fortaleza.
+Mas entrega-se livre, porque o Pai lhe ordene,
+E sara ainda a orelha em sua nobreza.
+Não vence o Cristo por fugir ao açoite,
+Mas por entrar senhor na própria noite.
 
 **10**
 
-Junto aos canais penduram-se os instrumentos,
-E Sião se lembra entre suspiros e água;
-Mas Ezequiel vê carros e movimentos
-Da Glória que não cabe em pedra frágil.
-Mostra-lhe Deus ossadas sem alentos,
-Que recebem nervo, pele e sopro ágil;
-E a visão, em vale de desolação,
-Profetiza ressurreição e reunião.
+Levado vai ao sumo sacerdócio,
+Onde a mentira busca falso acordo;
+Torcem testemunhos contra o Justo e sóbrio,
+Como se o Sol pudesse tornar-se morto.
+Cala-se o Cristo em majestoso ócio,
+Até que ao Nome responde em tom absorto.
+Rasgam-se vestes, gritam "blasfemia!",
+E o Santo sofre escárnio e profecia.
 
 **11**
 
-Daniel serve em corte estrangeira,
-Mas não curva a alma ao ouro nem ao medo;
-No forno anda incólume a sua maneira,
-Entre leões mantém o santo enredo.
-Vê reinos como feras na poeira,
-E um Filho do Homem recebendo o cetro;
-Assim, sob impérios de unha e espada,
-Brilha a futura realeza anunciada.
+Pedro, ao longe, no pátio frio e aceso,
+Nega três vezes o Senhor amado;
+Canta o galo, e o olhar do Mestre, ileso,
+Trespassa o peito do discípulo turbado.
+Sai Pedro a chorar seu medo e peso,
+Mais pobre e mais humilde que humilhado;
+Porque a graça, antes de erguer a pedra,
+Quebra-lhe o orgulho e o coração de pedra.
 
 **12**
 
-Volta um remanescente à terra antiga,
-Por boca de Ciro aberta a porta dura;
- Levanta altar, reedifica e castiga
-A frouxidão que à esperança mistura.
-Ageu e Zacarias reatam a fadiga,
-Mostrando ao povo a próxima ventura;
-Mas embora o templo torne a erguer-se ao chão,
-Não desce ainda a plena consolação.
+Levam-no a Pilatos; o poder romano
+Lava as mãos sem lavar-se a consciência.
+Herodes o remete em vão e engano,
+Vestindo-o de irrisória magnificência.
+Clama a turba, num furor já desumano,
+Por Barrabás e contra a Inocência;
+E o juiz, temendo mais a voz da praça,
+Entrega o Rei à cruz que o povo abraça.
 
 **13**
 
-Esdras lê a Lei a um povo comovido,
-Neemias cerca os muros derrubados;
- Reata-se o culto, o sábado e o ouvido,
-Mas ficam os corações ainda cansados.
-Tem-se a cidade e o centro reconstruído,
-Porém não os séculos reconciliados;
-Persiste no retorno uma demora,
-Como vigília à beira de outra aurora.
+Sobem-lhe às costas o madeiro duro,
+Como a Isaac outrora a lenha erguida;
+Vai o Cordeiro ao monte mais escuro,
+Levando em si a culpa alheia e a vida.
+Mulheres choram; Ele, em tom mais puro,
+Manda-as chorar a futura ferida.
+Chega ao Calvário, e a mão que tudo criara
+É presa ao lenho que o mundo preparara.
 
 **14**
 
-Pois a espera messiânica se adensa
-Quanto mais tarda o Prometido Rei;
- Lê-se David, e a alma já pensa
-Num Filho sem pecado e sem revés.
-Lê-se Isaías, e a virgem imensa
-Paira sobre Belém e sobre a grei;
-Lê-se o Servo que leva a culpa alheia,
-Sem que se entenda ainda a funda ideia.
+Erguido entre ladrões, por trono a cruz,
+Reina o Senhor no auge do abandono;
+Pede perdão por quem lhe apaga a luz,
+Abre ao ladrão contrito o eterno trono.
+Dá a Mãe ao discípulo, e em negra cruz
+Sente o peso do cálice sem sono.
+Clama por sede, cumpre a Escritura inteira,
+E entrega ao Pai a vida derradeira.
 
 **15**
 
-Lê-se Miqueias e se mira a aldeia
-Pequena donde sairá o Pastor;
-Lê-se Zacarias e se vê a cadeia
-Do rei humilde em jumento sem furor.
-Lê-se Malaquias, e a esperança semeia
-Um mensageiro antes do maior Senhor;
-E toda a Escritura, em seu silêncio espesso,
-Se inclina ao quarto pobre de um começo.
+Rasga-se o véu; treme a terra; cala-se o templo;
+O centurião confessa o Rei verdadeiro.
+Do lado aberto corre duplo exemplo:
+Sangue e água ao mundo prisioneiro.
+Mas não se rompe ainda o escuro templo
+Da noite em que parece o mal inteiro;
+Convém que a catástrofe ao fundo desça,
+Para que mais alta a alegria apareça.
 
 **16**
 
-Por isso o exílio não é só castigo,
-Nem o retorno simples reparação;
-É a cava funda em que o desígnio antigo
-Prepara à graça mais humilde encarnação.
-Quando a cidade perde templo e abrigo,
-Aprende a esperar salvação não de mão
-Humana, mas de Deus que vem de cima
-Entrar na história sem clamor nem rima.
+Tiram do lenho o Corpo malferido,
+E a Mãe o recebe em muda agonia;
+José e Nicodemos, em gesto comedido,
+Lhe dão perfumes, linho e companhia.
+ Põe-se no túmulo o Senhor vencido,
+Aos olhos do mundo e da hoste sombria;
+Rola-se a pedra, e o selo humano pensa
+Fechar ao Vivo a porta mais intensa.
 
 **17**
 
-Lida após Páscoa, a dor de Jeremias,
-O carvão de Isaías, o fogo de Elias,
-As rodas de Ezequiel, as noites frias
-De Daniel entre feras e vigílias,
-Tudo converge às santas agonias,
-À cruz, ao túmulo vazio e às maravilhas;
-Porque o Servo, o Filho do Homem, o Rei,
-São um só Cristo em sua una lei.
+Faz-se silêncio sobre céu e terra,
+Como se o Verbo houvesse enfim dormido;
+ Tremem os seus, e a esperança se encerra
+No seio da dor e do sentido ferido.
+Parece que a Serpe alcançou a guerra,
+Que o justo enfim caiu desmentido;
+E o épico, fiel ao fundo da verdade,
+Não furta ao leitor esta escuridade.
 
 **18**
 
-E lida após a Anunciação, a espera
-Se tinge de mais íntima doçura:
-O que os profetas viam de longe e em cera,
-Maria ouvirá em luz sem cobertura.
-O Ramo prometido encontra a primavera,
-A Virgem torna carne a Escritura;
-E o longo advento, em suspiro e luto,
-Entra no tempo em virginal fruto.
+Desce o Senhor ao reino do cativeiro,
+Não como preso, mas como vencedor oculto;
+Abre-se ao morto o mais profundo roteiro,
+E o abismo sente o passo do mais alto culto.
+Mas tal mistério, em véu ainda severo,
+Não rompe ao mundo em claro resultado;
+Fica na sombra, enquanto o tempo aguarda
+A hora em que o jardim sua pedra guarde.
 
 **19**
 
-Assim o pós-exílio e seus vigias,
-Longe de serem mera pausa morta,
-São o silêncio alto de quem cria
-Que atrás do véu já range a eterna porta.
-Toda a esperança, em salmos e elegias,
-Aponta ao Deus que ao mundo se reporta;
-E a velha noite, em sua dor mais pura,
-Prepara a entrada da maior ventura.
+Nem mesmo aqui convém romper a aurora,
+Pois toda a dor precisa seu completo;
+A morte deve parecer senhora,
+E a esperança, quase um último secreto.
+Só assim, quando o último canto aflora,
+Será maior o impossível e reto;
+A eucatástrofe, guardada ao derradeiro,
+Rasgará mais fundo a noite do madeiro.
 
 **20**
 
-Feche-se o canto com as lâmpadas acesas
-Da espera entre ruínas e promessas;
-O povo aguarda, entre jejuns e mesas,
-O Rei, o Servo, o Filho e suas peças.
-E nós, relendo em Cristo tais tristezas,
-Vemos nelas não sombras já dispersas,
-Mas a vigília que, após tanta demora,
-Se abre em Nazaré pela nova aurora.
+Feche-se o canto com a pedra cerrada,
+Com o corpo santo no sepulcro posto;
+A Cidade cala, a grei desconsolada,
+E o Inferno julga ver vencido o Rosto.
+Mas sob a noite mais desesperada,
+Já se prepara o não previsto e justo;
+E o épico detém-se à beira do abismo,
+Guardando ao fim o giro do cristianismo.

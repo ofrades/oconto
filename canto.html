@@ -134,18 +134,26 @@
     // ── Render the canto Markdown into the article ──────────────
     async function renderCanto(canto) {
       const body = document.getElementById('canto-body');
-      const loading = document.getElementById('loading-state');
 
       try {
         const res = await fetch(canto.file);
         if (!res.ok) throw new Error(`HTTP ${res.status}`);
         const md = await res.text();
 
-        // Configure marked: no smart quotes, plain renderer
-        marked.setOptions({ mangle: false, headerIds: false });
-
         const html = marked.parse(md);
         body.innerHTML = html;
+
+        // Post-process: mark stanza-number paragraphs for CSS targeting.
+        // A stanza-number paragraph contains only a <strong> with a digit.
+        body.querySelectorAll('p').forEach(p => {
+          if (
+            p.children.length === 1 &&
+            p.children[0].tagName === 'STRONG' &&
+            /^\d+$/.test(p.children[0].textContent.trim())
+          ) {
+            p.classList.add('stanza-num');
+          }
+        });
       } catch (err) {
         body.innerHTML = `<p class="loading">Erro ao carregar o canto. (${err.message})</p>`;
       }

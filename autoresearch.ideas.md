@@ -1,6 +1,2 @@
-- Reestruturar `canto_V.md` como livro das origens lembrado: criação, queda, Abel, dilúvio, Babel, Abraão, Isaac, Jacó e José.
-- Reestruturar `canto_VI.md` como Êxodo, Lei e Reino: Moisés, Páscoa, Mar Vermelho, Sinai, deserto, Josué, juízes, Saul, David e templo.
-- Reestruturar `canto_VII.md` como profetas, exílio e vigília messiânica.
-- Reestruturar `canto_VIII.md` como Jerusalém e a Páscoa iminente, sem resolver ainda a eucatástrofe.
 - Reestruturar `canto_IX.md` como cruz, sepulcro e noite extrema.
 - Reestruturar `canto_X.md` para que a Ressurreição seja o grande giro eucatastófico final, seguido por Emaús, Ascensão, Pentecostes, Igreja, Apocalipse e Nova Jerusalém.

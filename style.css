@@ -349,8 +349,8 @@ body {
   display: none;
 }
 
-/* Stanza number: bold text like **1** becomes <strong> inside a <p> */
-#canto-body > p:has(> strong:only-child) {
+/* Stanza number paragraphs (class added by JS after render) */
+#canto-body p.stanza-num {
   font-family: var(--font-sans);
   font-size: 0.65rem;
   font-weight: 500;
@@ -358,27 +358,27 @@ body {
   text-transform: uppercase;
   color: var(--gold);
   margin-top: 3.5rem;
-  margin-bottom: 1rem;
+  margin-bottom: 0.9rem;
   text-align: center;
 }
 
-#canto-body > p:has(> strong:only-child) strong {
+#canto-body p.stanza-num strong {
   font-weight: 500;
   color: inherit;
 }
 
+/* First stanza number: no extra top margin */
+#canto-body p.stanza-num:first-of-type {
+  margin-top: 0;
+}
+
 /* Verse lines */
-#canto-body > p {
+#canto-body > p:not(.stanza-num) {
   font-family: var(--font-serif);
   font-size: 1.08rem;
   line-height: 1.95;
   color: var(--text);
   margin-bottom: 0;
-}
-
-/* First stanza number has less top margin */
-#canto-body > p:has(> strong:only-child):first-of-type {
-  margin-top: 0;
 }
 
 /* ── Loading state ──────────────────────────────────────────── */
