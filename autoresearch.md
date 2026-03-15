@@ -2,7 +2,7 @@
 
 ## Goal
 
-Write a complete epic poem in Portuguese about the Bible — the story of God — structured as a series of cantos, produced one at a time until the full work is done.
+Write a complete epic poem in Portuguese about the Bible — the story of God — structured as a series of cantos, just like lusiads, 10 cantos, produced one at a time until the full work is done.
 
 ## Vision
 
@@ -30,4 +30,4 @@ The following texts are in `./data/` and must be studied before writing:
 
 ## Output
 
-Produce cantos sequentially: `canto_I.md`, `canto_II.md`, etc. Each canto includes a prose argument and the verses. Continue until the epic is complete.
+Produce cantos sequentially: `canto_I.md`, `canto_II.md`, etc. Each canto includes the verses. Continue until the epic is complete.

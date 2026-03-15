@@ -1,3 +1,7 @@
-- Revisar `canto_I.md`–`canto_XII.md` depois de avançar mais no poema, para unificar melhor o proémio, a invocação e a arquitetura global **in media res**.
-- Novo caminho: arco de transição final — Baal-Fogor, zelo de Fineias, últimos discursos de Moisés, Nebo, Josué, Jordão e Jericó.
-- Novo caminho: arco da conquista e dos juízes iniciais — partilha da terra, Caleb, queda do fervor, ciclos de juízes e necessidade de um rei santo.
+- Revisar `canto_I.md`–`canto_X.md` quando o ciclo de 10 cantos estiver completo, para unificar melhor o proémio, a invocação e a arquitetura global **in media res**.
+- Caminho restante: José, a descida ao Egito e a preservação providencial da casa de Israel.
+- Caminho restante: Êxodo, Páscoa, Mar Vermelho e o nascimento litúrgico do povo libertado.
+- Caminho restante: Sinai, aliança, tabernáculo, deserto, Moisés, Josué, Jordão e Jericó como transição para a terra.
+- Caminho restante: juízes, Samuel, Saul, Davi e Salomão, mostrando auge e fratura do reino.
+- Caminho restante: profetas, divisão, queda de Samaria e Jerusalém, exílio e retorno.
+- Caminho restante: encarnação, ministério, paixão, ressurreição, Igreja e consumação apocalíptica.

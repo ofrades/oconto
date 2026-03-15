@@ -1,9 +1,5 @@
 # Canto II
 
-## Argumento
-
-Prossegue a história dos filhos do desterro. Caim e Abel oferecem sacrifícios; o primeiro, tomado de inveja, derrama no campo o sangue do irmão, e a terra começa a beber morte humana. Crescem as gerações, multiplicam-se artes, cidades e violências; contudo, em Sete e em Enoque permanece a invocação do Nome. Quando toda carne corrompe o seu caminho, Deus chama Noé, justo em sua geração, e por meio da arca salva um resto da criação no meio do dilúvio. Passadas as águas, firma o Senhor aliança com o homem e põe nas nuvens o arco do pacto. Mas a soberba torna a erguer-se em Babel, até que Deus confunde as línguas e dispersa as nações. Por fim, dentre as gentes espalhadas, o Senhor chama Abrão para uma peregrinação de promessa, de cuja semente serão benditas todas as famílias da terra.
-
 ## Versos
 
 **1**
