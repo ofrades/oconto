@@ -1,2 +1,0 @@
-- Trazer, onde útil, léxico mais grave e barroco, compatível com Camões e reforçado por Vieira.
-- Prosseguir em `canto_VIII.md`–`canto_X.md`, um canto por vez, mantendo a arquitetura já corrigida mas depurando rima, cadência e fecho em oitava-rima mais audível.

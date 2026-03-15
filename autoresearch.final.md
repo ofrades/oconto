@@ -2,15 +2,22 @@
 
 ## Goal achieved
 
-The epic has been realigned to the corrected architecture requested by the user:
-- **Annunciation** remains the true in-medias-res opening after the invocation
-- the central Christian **eucatastrophe** is no longer structurally spent in the middle of the poem
-- the **Resurrection** is now gathered into the **final canto**, where it functions as the poem’s decisive epic reversal
-- the New Jerusalem remains the consummation of that resurrectional joy
+The current target — a stricter **Camonian formal pass** over the corrected 10-canto architecture — has been completed.
 
-## Realigned cantos
+The poem now keeps:
+- the corrected macro-architecture already established
+- a much more explicit effort toward **ottava rima**
+- stronger stanza closure
+- more audible rhyme
+- higher diction, with room for Vieira-like lexical gravity where useful
 
-All ten cantos are now aligned to the corrected architecture:
+## Primary metric
+
+- `camonian_cantos = 10`
+
+## Completed Camonian-form pass
+
+All ten cantos were revised in this pass:
 - `canto_I.md`
 - `canto_II.md`
 - `canto_III.md`
@@ -22,45 +29,32 @@ All ten cantos are now aligned to the corrected architecture:
 - `canto_IX.md`
 - `canto_X.md`
 
-## Primary metric
+## What changed in this pass
 
-- `realigned_cantos = 10`
+### Formal tightening
+- stanzas were recompressed and tightened
+- rhyme became more audible and intentional
+- couplet endings were strengthened
+- diction was elevated toward a more recognizably Camonian register
 
-## Corrected epic structure
+### Structural preservation
+This pass did **not** abandon the corrected structure:
+1. Annunciation opening remains
+2. Resurrection remains the final great eucatastrophic turn
+3. the macro-architecture still runs through retrospective sacred history and returns to final consummation
 
-1. `canto_I.md` — proem + invocation + Annunciation
-2. `canto_II.md` — hidden advent and nativity arc
-3. `canto_III.md` — manifestation of the Son
-4. `canto_IV.md` — the Kingdom in conflict
-5. `canto_V.md` — origins remembered
-6. `canto_VI.md` — Exodus, Law, wilderness, judges, kingdom, temple
-7. `canto_VII.md` — prophets, exile, return, messianic vigil
-8. `canto_VIII.md` — Jerusalem and the imminent Passover
-9. `canto_IX.md` — Cross, burial, Holy Saturday, extreme night
-10. `canto_X.md` — Resurrection, Emmaus, Ascension, Pentecost, Church, Apocalypse, New Jerusalem
+## Remaining work
 
-## Key correction
-
-The most important architectural correction was this:
-- before: the Resurrectional turn had been structurally anticipated too early
-- now: the poem reserves its great epic reversal for the end, closer to the instinct of the *Odyssey*, while still keeping the Annunciation as the in-medias-res opening
-
-## Tolkien alignment
-
-`data/on-fairy-stories1.pdf` now governs the poem more faithfully at the macro level:
-- the **catastrophe** is concentrated in `canto_IX.md`
-- the **eucatastrophe** is concentrated in `canto_X.md`
-- the **consummation** flowers from Resurrection into Pentecost, Church, judgment, and New Jerusalem
+No useful backlog remains for this target.
+Any further work would be a **new** target, such as:
+- stricter decasyllabic scansion line by line
+- systematic rhyme audit canto by canto
+- dedicated Vieira lexical enrichment pass
+- expansion of epic similes and formal speeches
 
 ## Why the backlog is exhausted
 
-No useful paths remain for this target:
-- the corrected architecture has been implemented
-- the final-canto Resurrection requirement has been satisfied
-- the backlog has been consumed
-
-Any further work would be a fresh target, such as:
-- metrical refinement
-- diction tightening toward a more uniformly Camonian register
-- stronger recurring epic similes and verbal motifs
-- expansion of set speeches in selected cantos
+The backlog for this formal pass has been consumed:
+- all remaining cantos from the previous state were revised
+- all ten cantos now belong to the Camonian-form pass
+- no further distinct experiment path remains under the same target without changing the optimization goal
