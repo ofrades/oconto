@@ -1,1 +1,2 @@
-- Revisar `canto_I.md`–`canto_IV.md` para reforçar a arquitetura épica global: abertura verdadeiramente **in media res**, proémio inequívoco com proposição + invocação, e mais cenas dramáticas / retrospectivas em vez de sequência quase-cronística.
+- Revisar `canto_I.md`–`canto_V.md` depois de avançar mais no poema, para unificar melhor o proémio, a invocação e a arquitetura global **in media res**.
+- Nos próximos cantos do Êxodo, privilegiar grandes cenas épicas e discursos formais: opressão, rubo ardente, confronto com Faraó, pragas, Páscoa e travessia do mar.
