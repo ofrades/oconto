@@ -4,14 +4,14 @@
 
 **1**
 
-Do livro das origens vai-se adiante
-À Lei, ao mar, ao deserto e ao reinado;
-Convém seguir o povo caminhante,
-Por Deus de entre as nações apartado.
-Tudo o que o mundo viu remoto e grande,
-Em sombra e rito foi-lhe figurado;
+Das origens feridas se prossegue
+À Lei, ao mar, ao ermo e ao reinado;
+Convém seguir o povo que se entregue
+Ao braço por mil modos preparado.
+Tudo o que a antiga sombra mal distingue,
+Em rito e figura foi semeado;
 E o cordeiro, a arca, a vara e o mandamento,
-Pediam já mais alto Cumprimento.
+Pediam mais perfeito Cumprimento.
 
 **2**
 
@@ -118,7 +118,7 @@ Segue o caminho entre rebeldes vozes,
 Espias, medo, Cades e sentença;
 Quarenta anos consomem gerações atrozes,
 Porque sem fé não se possui a herança.
-Mas Deus conserva, em meio a tantas nozes,
+Mas Deus conserva, em meio a tantas vozes,
 Caleb, Josué e a firme esperança;
 E o bronze erguido contra a serpe ardente,
 Promete cura ao povo impenitente.
