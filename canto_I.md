@@ -15,25 +15,25 @@ Ao mundo inteiro, e nele se lhe esconde.
 
 **2**
 
-Calem-se Apolo, as Ninfas e Helicona,
-Que não governam céus nem desconsolo;
+Calem-se Apolo e as Ninfas de Helicona,
+Que não governam o celeste polo;
 Outra é a Fonte que meu canto abona,
 Outro o clarão que vence a sombra e dolo.
-Vem, Santo Espírito, pomba e viva chama,
-Reger-me a voz, quebrar-me o engenho tolo;
-Dá-me um dizer ao mesmo tempo grave e terno,
-Digno do pó e digno do Eterno.
+Vem, Santo Espírito, de luz corona,
+Rege-me a voz, não deixes o engenho tolo;
+Dá-me alto som, que ao barro o Céu descobre,
+E faça rico o verso humilde e pobre.
 
 **3**
 
-Não quero abrir o canto no princípio
+Não quero abrir o canto em remembrança
 Da luz primeira e do jardim florido;
-Abre-se aqui onde o celeste anúncio
-Começa a refazer o ser caído.
-Já jaz o mundo em velho precipício,
-Já geme Adão em seu desterro antigo;
-Mas eis que a Prometida aurora avança,
-E entra em casa humilde a Esperança.
+Abre-se aqui onde desponta a esperança
+No mundo antigo, já de dor vestido.
+Geme Adão, sem repouso nem bonança,
+Sob o rigor do exílio merecido;
+Mas entra em casa pobre a alta ventura,
+E o Céu inclina ao pó sua altura.
 
 **4**
 
@@ -52,76 +52,76 @@ Não vinha armada em pompa soberana,
 Nem tinha corte, trompa ou aparato;
 Fiava, orava, humilde e sempre humana,
 Sob o olhar do Senhor secreto e grato.
-Mas sobre a Casa outrora davídica e santa
+Mas sobre a Casa davídica e arcana
 Pesava já de séculos o trato;
-E a Virgem, sem saber toda a grandeza,
-Guardava em si de Sião a singeleza.
+Guardava em si, sem ver toda a grandeza,
+De Sião a modesta singeleza.
 
 **6**
 
-Então do alto desceu por claro raio
-O Mensageiro da mais alta esfera;
-Não como engano vão, nem doce ensaio
-De sonho leve que ao despertar se altera,
-Mas como aquele que, rompendo a treva
-Da antiga noite, a própria verdade leva.
-Enche-se o aposento de tremor e lume,
-Como se o Céu baixasse ao seu costume.
+Então baixou do Céu à pobre esfera
+O mensageiro da suprema glória;
+Não como sonho vão, nem por quimera,
+Que deixa em névoa a mal segura história,
+Mas como aquele que do alto trouxera
+Recado igual à sempiterna memória;
+Enche-se a casa de tremor e lume,
+Como se o Céu mudasse ali costume.
 
 **7**
 
 “Deus te salve”, lhe diz, “cheia de graça;
 Contigo está o Senhor, flor sem segunda.”
-Turba-se a Virgem casta à estranha praça,
-E pesa o som na alma mais profunda.
-Nunca vaidade em seu pensar se enlaça,
-Nem busca para si honra do mundo;
-Antes inquire, em humilde sobressalto,
-Que saudação é esta, vinda do Alto.
+Turba-se a Virgem casta, e não se enlaça
+Vaidade alguma à alma mais profunda;
+Antes inquire, humilde, o que ameaça
+A paz do peito e lhe revolve o fundo;
+Pesa o recado em vivo sobressalto,
+E adora o Céu em silencioso assalto.
 
 **8**
 
-Então o Anjo, em voz de paz severa,
-Lhe diz: “Maria, não receies nada;
-Achaste graça aos olhos de quem gera
-O ser do nada e o sustém sem espada.
-Conceberás um Filho em primavera
-Que não terá no mundo igual morada;
-Jesus será seu nome, e sua realeza
-Não terá termo, queda, nem pobreza.
+Então o Anjo, em voz de paz dourada,
+Lhe diz: “Maria, cessa o teu receio;
+Achaste graça à vista levantada
+Do Senhor do mundo e do alto meio.
+Conceberás, sem mancha infortunada,
+Um Filho, em quem terá descanso o seio;
+Jesus será seu nome, e sua alteza
+Não terá fim, desmaio, nem pobreza.
 
 **9**
 
-Dar-lhe-á o Senhor o trono prometido
-A David, teu maior, em tempos idos;
-Reinará para sempre, e o som vencido
-Dos séculos lhe servirá rendido.
+Dar-lhe-á o Céu o trono prometido
+De David, rei e pai do antigo estado;
+Reinará para sempre, esclarecido,
+Sem termo, sem ocaso, sem cuidado.
 Nele será Jacó restituído,
-Nele os cativos mais antigos ouvidos;
-Seu Reino não conhece ocaso ou termo,
-Nem se corrompe em ferro, pó ou ermo.”
+E o cativo universo libertado;
+Seu Reino não conhece fim nem ermo,
+Nem se corrompe em ferro, pó ou termo.
 
 **10**
 
 Ouve Maria e, sem negar a altura,
-Pergunta com pudor, não com desdém:
-“Como será, se em minha carne pura
-Não entrou varão algum, nem quero além?”
-Não é dúvida ímpia, escura e dura,
-Mas zelo casto que melhor convém;
-Quer saber como a graça, sem feri-la,
-Fará do próprio corpo nova argila.
+Pergunta com pudor: “Como há de ser?
+Se guardo ilesa a virginal clausura,
+E não conheço varão nem prazer?”
+Não nasce a voz de incredulidade dura,
+Mas de desejo humilde de entender;
+Quer ver como a infinita graça infinda
+Faz do barro mortal morada linda.
 
 **11**
 
-Responde então o Anjo luminoso:
-“Sobre ti virá o Espírito divino;
-Cobrir-te-á sua sombra em santo pouso,
-Sem peso vil, sem nó carnal, sem tino.
-Por isso o Santo fruto glorioso,
-Que brotará de ti por tal caminho,
-Será chamado Filho do Deus forte,
-Senhor da vida e vencedor da morte.
+Responde o Anjo: “O Espírito divino
+Sobre ti descerá com sombra e véu;
+Sem nó de sangue, ofício ou desatino,
+Obrará em ti o poder do eterno Céu.
+Por isso o Fruto santo e peregrino
+Será chamado Filho do alto Deus;
+Nele a morte terá findo seu norte,
+Porque será o Senhor da vida e morte.
 
 **12**
 
@@ -130,75 +130,75 @@ Traz no escondido ventre nova vida;
 Já o deserto se prepara ao tema,
 Já a esterilidade é convertida.
 Porque nenhum decreto do Supremo
-Encontra porta fechada ou vencida;
+Conhece porta estreita ou impedida;
 Quando Ele fala, o ermo cria flores,
-E o seio seco aprende novos ardores.”
+E o tronco seco aprende novos ardores.”
 
 **13**
 
-Ao som de tal recado se recolhe
-Em Maria o passado e o porvir inteiro;
-Lembra-se em sombra a antiga voz que acolhe
-A guerra prometida ao Dragão primeiro.
-Eve, que outrora ao engano abriu a porta,
-Vê de longe o remédio verdadeiro;
-Abraão entrevê, no fruto prometido,
-O universal banquete pressentido.
+Em Maria se enlaça o mundo inteiro,
+E a antiga voz na alma se recolhe;
+Lembra-se em sombra o Éden verdadeiro,
+E a guerra que à Mulher o Céu escolhe.
+Vê Eva, ao longe, o remédio primeiro,
+E Abraão o fruto que no tempo colhe;
+O que foi dito em cifra e esperança mansa,
+Faz-se no seio humano aliança e esperança.
 
 **14**
 
 David revê seu trono, não na espada,
-Mas em manso esplendor mais poderoso;
-Isaías torna a Virgem anunciada,
-Miqueias vê Belém de brilho novo.
-Toda profecia, outrora semeada,
-Levanta agora o espigão viçoso;
+Mas num mais brando e soberano ardor;
+Isaías vê a Virgem anunciada,
+Miqueias, Belém posta em resplendor.
+Toda profecia outrora semeada,
+Levanta agora espiga, flor e olor;
 E a história, que andara em sombra e espera,
-Sente no ar a sua primavera.
+Sente no ar próxima primavera.
 
 **15**
 
-Cala-se o mundo um breve e alto instante;
-Parece que as esferas aguardavam,
-Que a terra, o mar, o abismo palpitante,
-E os coros do alto em reverência estavam.
+Cala-se o mundo um breve e alto instante,
+Como se os Céus, suspensos, aguardavam;
+A terra, o mar, o abismo palpitante,
+Em muda reverência se inclinavam.
 Não por fraqueza do querer constante,
-Mas porque os céus o sim da Virgem amam;
+Mas porque ao “sim” da Virgem se ordenavam;
 Quis Deus honrar, sem diminuir seu mando,
-A livre obediência do barro amando.
+A livre obediência do pó amando.
 
 **16**
 
 Então responde a serva mais ditosa:
 “Eis aqui do Senhor a humilde escrava;
 Faça-se em mim tua palavra gloriosa,
-Como o Céu manda e a Verdade trava.”
+Como o Céu manda, e a verdade grava.”
 Não sai de sua boca voz medrosa,
-Mas rendição mais forte que a que brava
-Legião jamais mostrou em campo armado:
-Vence o orgulho um coração inclinado.
+Mas rendição mais forte que a mais brava;
+Vence o orgulho um coração inclinado,
+E o Céu desce ao pó reconciliado.
 
 **17**
 
-No mesmo instante em que a resposta sobe,
+No mesmo instante em que o humilde “sim” sobe,
 Desce mais fundo a graça inominada;
 O Verbo eterno à nossa carne acode,
-Sem deixar a alta glória jamais deixada.
-Fecha-se o abismo antigo; e o Céu descobre
-Na Virgem sua tenda desejada;
-Cabe no seio de mulher terrestre
-Aquele a quem não basta o céu celeste.
+Sem deixar a alta glória nunca deixada.
+Fecha-se o abismo antigo; o Céu descobre,
+Na Virgem santa, a tenda desejada;
+Cabe no seio da mulher terrestre,
+Aquele a quem não basta o Céu celeste.
 
 **18**
 
-Nem ouro, nem clarim, nem trompa forte
+Nem ouro, nem clarim, nem trompa forte,
 Saudaram logo o Rei que assim descera;
 Veio escondido, para dar à morte
 Golpe mais fundo que o da lança fera.
 Tomou de nós a carne, o peso e a sorte,
 Sem tomar culpa, nódoa ou sombra mera;
-E o que criara estrelas e bonanças
-Bate agora no peito em infantis esperanças.
+E o que criara estrelas e bonanças,
+Bate no seio em pobres esperanças.
 
 **19**
 
@@ -206,18 +206,18 @@ Aqui começa a grande e vera história,
 Não por princípio nu, mas por cumprimento;
 O Éden perdido aguarda a nova glória,
 O exílio ouve mais doce mandamento.
-Já tem raiz no tempo a alta vitória
+Já tem raiz no tempo a alta vitória,
 Que há de rasgar a noite e o monumento;
-E desde o "fiat" da donzela pura
-Move-se à cruz a eterna formosura.
+E desde o “fiat” da donzela pura,
+Move-se à Cruz a eterna formosura.
 
 **20**
 
 Cantai, pois, céus; e tu, ó terra, atende,
-Que em Nazaré se acende a nova aurora.
+Que em Nazaré se acende nova aurora;
 Do quarto pobre a eternidade pende,
 E o mundo antigo em novo ser melhora.
-Se em Eva a antiga ruína ao pó desce,
+Se em Eva a antiga queda ao pó descende,
 Em Maria a esperança se restaura;
 E o Poeta, vendo o Verbo em carne humana,
-Abre seu canto onde a graça soberana.
+Abre seu canto à graça soberana.
