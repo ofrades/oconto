@@ -5,11 +5,11 @@
 **1**
 
 Vencidas já as eras preparadas,
-Torna o Poeta à Cidade do destino;
+Retorna o canto à pedra de Sião;
 Ali se apertam leis, promessas, espadas,
-E o Cordeiro se adianta ao desatino.
+E o Cordeiro entra em sua vocação.
 Jerusalém levanta as altas entradas,
-Dourada em Templo, fumo e som divino;
+Dourada em Templo, fumo e ostentação;
 Mas sob o ouro e sob o sacro trato,
 Se move a noite em mais severo trato.
 
@@ -17,7 +17,7 @@ Se move a noite em mais severo trato.
 
 Vem o Senhor de Betânia à colina,
 Sabendo quanto custa tal subida;
-Não busca o carro, a púrpura homicida,
+Não busca o carro, a púrpura assassina,
 Nem quer vencer por força presumida.
 Escolhe humilde jumento, e assim ensina
 Que outra é sua realza prometida;
@@ -59,11 +59,11 @@ Concebem contra Ele trama avara.
 
 **6**
 
-Fala da vinha, dos servis homicidas,
+Fala da vinha, dos homicidas servos,
 E do Filho lançado por herança;
-Mostra que as pedras, antes repelidas,
+Mostra que as pedras, antes desprezadas,
 Serão cabeça firme da esperança.
-Perguntam-lhe do censo e das medidas,
+Perguntam-lhe do censo e de outras veras,
 Mas toda astúcia cai sem temperança;
 Dai a César o selo e o vil metal,
 E a Deus o homem, imagem principal.
@@ -94,8 +94,8 @@ Mais se adensa o rancor e o negro fluxo.
 
 No monte das Oliveiras, contemplando
 A cidade, o Templo e a idade vã,
-Fala de guerras, fraudes, vigiando
-A fé que deve conservar-se sã.
+Fala de guerras, fraudes, e vigiando,
+Da fé que há de guardar-se firme e sã.
 Não cessa o século, em tumulto brando,
 De perseguir a verdade soberã;
 Mas bem-avento é quem, em noite escura,
