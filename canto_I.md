@@ -4,36 +4,36 @@
 
 **1**
 
-Não canto os vãos troféus da humana glória,
-Nem do Nauta gentil o lenho ousado;
-Canto a maior e veríssima memória,
-Do Verbo eterno ao tempo já baixado.
-Se Grécia e Lácio exaltam sua história,
-Co'o falso nume e canto levantado,
-Eu canto a luz que ao mundo se oferece,
-E o alto Amor que o perde e restabelece.
+Canto o segredo eterno, alto e calado,
+Que antes dos sóis no Padre já morava;
+Canto o Verbo no tempo humanado,
+Por quem a queda antiga se curava.
+Se o mundo estima o braço sublimado,
+E a fama que o metal lhe dilatava,
+Eu sigo mais profundo e verdadeiro
+O Deus que desce ao barro por Cordeiro.
 
 **2**
 
-Calem-se Apolo e as Ninfas de Helicona,
-Que não governam o celeste polo;
-Outra é a Fonte que meu desejo abona,
-Outro o clarão que vence a sombra e dolo.
-Vem, Santo Espírito, que a alma coroa,
-Rege-me a voz, não ma deixes de tolo;
-Dá-me alto som, e tuba conveniente,
-Que diga o Céu em lira obediente.
+Não chamo aqui Helicona nem Parnaso,
+Nem peço ao sonho a falsa formosura;
+Peço ao Espírito fogo, alento e passo,
+Língua fiel e peito em chama pura.
+Reja-me o som, compasse-me o compasso,
+Para cantar sem quebra a suma Altura;
+Se o verso é grave, teu favor o ordene,
+E a voz do pó ao próprio Céu acene.
 
 **3**
 
-Não quero abrir o canto na espessura
-Da luz primeira e do jardim florido;
-Abre-se aqui, onde a celeste altura
-Visita o pó, do antigo mal ferido.
-Geme Adão debaixo a lei mais dura,
-Vai o mundo em desterro escurecido;
-Mas entra em casa pobre a alta ventura,
-E inclina o Céu ao barro decaído.
+Não parto da manhã primeira e bela,
+Nem do jardim em sua paz vestida;
+Parto do instante em que baixou à cela
+Do mundo a prometida e nova Vida.
+Geme Adão, e a culpa lhe desvela
+Os horizontes da mortal ferida;
+Mas entra em casa pobre a graça pura,
+E o Céu se inclina à nossa desventura.
 
 **4**
 
