@@ -17,10 +17,6 @@
     </nav>
 
     <main class="page">
-      <header class="canto-header">
-        <p class="canto-eyebrow" id="canto-eyebrow">Canto</p>
-      </header>
-
       <article id="canto-body">
         <p class="loading" id="loading-state">A carregar…</p>
       </article>
@@ -119,7 +115,7 @@
 
         // Top nav
         document.getElementById("nav-label").textContent =
-          `Canto ${canto.roman} · ${canto.title}`;
+          `Canto ${canto.roman}`;
 
         const navPrev = document.getElementById("nav-prev");
         if (prev) {
