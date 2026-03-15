@@ -1,3 +1,3 @@
-- Revisar `canto_I.md`–`canto_X.md` depois de avançar mais no poema, para unificar melhor o proémio, a invocação e a arquitetura global **in media res**.
-- Novo caminho: arco de Cades e da incredulidade — espias, gigantes da terra, fidelidade de Caleb e Josué, rebelião do povo e sentença dos quarenta anos.
-- Novo caminho: arco da peregrinação ferida — murmurações, serpente de bronze, Balaão e a aproximação final da Terra Prometida.
+- Revisar `canto_I.md`–`canto_XII.md` depois de avançar mais no poema, para unificar melhor o proémio, a invocação e a arquitetura global **in media res**.
+- Novo caminho: arco de transição final — Baal-Fogor, zelo de Fineias, últimos discursos de Moisés, Nebo, Josué, Jordão e Jericó.
+- Novo caminho: arco da conquista e dos juízes iniciais — partilha da terra, Caleb, queda do fervor, ciclos de juízes e necessidade de um rei santo.
