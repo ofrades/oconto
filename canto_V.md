@@ -4,220 +4,220 @@
 
 **1**
 
-Não no vergel, nem na primeira aurora,
-Mas no escuro cárcere começo o canto:
-Onde um hebreu, que o mundo ignora agora,
-Guarda no peito um providente espanto.
-Dormia o Nilo sob coroa e mando,
-Mas Faraó desperta em torvo pranto;
-E a noite egípcia, prenhe de sinais,
-Chama do abismo um preso entre os mortais.
+Já vê Jerusalém do monte a entrada,
+E o Rei sem pompa escolhe humilde jumento;
+Não vem com lança ao modo da jornada
+Dos reis que erguem em sangue o monumento.
+Estende a turba a veste e a verde ramada,
+Misturando verdade e vão intento;
+"Hosana" soa ao Filho de David,
+Enquanto a cruz lhe vem no mesmo viço.
 
 **2**
 
-Sete vacas ele viu sair do rio,
-Fermosas de pastagem e de estado;
-Depois outras, macérrimas de frio,
-Que devoravam o primeiro gado.
-Viu ainda a espiga cheia ao sol do estio,
-E outra crestada pelo vento irado;
-Turba-se o rei, consulta a arte vã,
-E todo o Egito acorda em medo e afã.
+Chora o Senhor a Cidade endurecida,
+Que não conhece o tempo da visita;
+Tem muros, culto, lâmpada acendida,
+Mas o coração ao seu Deus evita.
+Vê já de longe a pedra consumida,
+O templo em pó, a glória derrocada e aflita;
+Pois toda paz recusada em seu começo
+Volta depois em juízo mais espesso.
 
 **3**
 
-Então se lembra o copeiro olvidoso
-Do moço hebreu que ao fundo interpretara;
-Tiram-no à pressa do calabouço ignoso,
-Mudam-lhe a veste, a face e a forma avara.
-Mas José diz, humilde e luminoso:
-“Não sou eu a sabedoria rara;
-Deus responderá paz ao rei potente,
-Se quer falar por sonho à humana gente.”
+Entra no átrio e vê o santo espaço
+Feito mercado, moeda e voz profana;
+Derruba mesas, corta o torpe laço,
+E em zelo puro a casa do Pai reclama.
+Os cegos, pobres, crianças e cansaço
+Acham nele a realeza mais humana;
+Mas os que guardam preço, posto e vara,
+Concebem contra Ele trama mais avara.
 
 **4**
 
-Antes porém que suba ao trono alheio,
-Convém contar-lhe a antiga e dura estrada:
-Filho de amor, nascido em pai já velho,
-Trazia a túnica de várias cores dada.
-Por isso o invejam com mais torpe enleio
-Os filhos de Israel, raça irada;
-E mais acende o fogo que os consome
-O duplo sonho de seu alto nome.
+Fala então em parábolas de vinha,
+De servos mortos e do Filho expulso;
+Mostra que a pedra rejeitada vinha
+A ser cabeça de mais firme impulso.
+Perguntam-lhe do censo, e sua linha
+Não cai nem no temor nem no tumulto:
+Dai a César o selo em moeda bruta,
+E a Deus o homem, onde a imagem frutifica.
 
 **5**
 
-Sonhou os feixes curvarem-se ao seu feixe,
-Sonhou o sol, a lua e as onze estrelas;
-O pai repreende, mas no íntimo deixa
-A aguda palavra em silêncio entre elas.
-Os irmãos, porém, fazem do peito um eixo
-De ódio que busca logo mãos e armas;
-Quando o veem vir de longe à pastoria,
-Já lhe preparam morte e zombaria.
+No templo ensina ainda o fim dos dias,
+Guerras, enganos, dores e vigília;
+Louva a viúva pobre, em duas tias,
+Mais rica que a opulenta maravilha.
+Não mede Deus o peso das vazias
+Ofertas pelo som que o mundo trilha,
+Mas pelo coração que se despoja
+E em seu pouco a própria vida arroja.
 
 **6**
 
-“Eis o sonhador”, dizem; “matemo-lo cedo,
-Lancemo-lo a um poço, e vença-se o agouro.”
-Rúben resiste ao parricida enredo,
-Mas a turba, faminta de desdouro,
-Despem-lhe a túnica, e lançam-no ao degredo
-Da cisterna sem água, antro escuro;
-E enquanto o justo geme abandonado,
-Sentam-se os réus ao seu banquete ao lado.
+Chega afinal a noite desejada,
+Em que a antiga Páscoa encontra seu sentido;
+Busca-se a sala alta, preparada,
+Para o cordeiro e o grupo reunido.
+Sabe o Senhor que a hora está chegada
+De passar deste mundo ao Pai querido;
+E amando os seus até o extremo amado,
+Cinge a toalha ao corpo já inclinado.
 
 **7**
 
-Passa uma caravana em pó dourado,
-Mercadores do oriente e da ganância;
-Judá, medindo o irmão como mercado,
-Converte o sangue em prata e circunstância.
-Vendem José por mísero tratado,
-Como se a vida coubesse em vil balança;
-E o moço segue, entre camelos presos,
-Ao chão do Nilo e aos futuros pesos.
+Lava-lhes os pés o Rei do universo,
+Confundindo a grandeza e o pensamento;
+Pedro recusa o gesto mais submerso,
+Sem ver no serviço o régio fundamento.
+Mas Cristo o adverte em ensino terso:
+"Se eu te não lavar, ficas sem meu tento."
+Aprendem os discípulos, por água e pó,
+Que reina o Maior fazendo-se menor.
 
 **8**
 
-Tingem depois no sangue de cabrito
-A veste que era glória e privilégio;
-Mostram-na ao pai, e o velho, quase aflito,
-Crê ter perdido ao monstro o filho régio.
-Rasga-se Jacó em dor, e em longo rito
-Recusa a paz de todo o seu colégio;
-Mas sob a lágrima do pai ferido
-Ia Deus escrevendo outro sentido.
+Sentado à mesa, toma o pão nas mãos,
+Bendiz, reparte, e dá-o aos companheiros:
+"Tomai e comei; este sou eu por vós,
+Corpo entregue em amor verdadeiro."
+Toma depois o cálice, e os corações
+Se curvam ante o dom inteiro:
+"Este é meu sangue, nova e eterna aliança,
+Que por muitos se verte em remissão e esperança."
 
 **9**
 
-No Egito compra-o Putifar valente,
-Capitão de Faraó e de sua guarda;
-E o Senhor vai com o servo inocente,
-Fazendo fértil a desgraça tarda.
-Tudo prospera em sua mão prudente,
-Até que a culpa em veste alheia o aguarda:
-A esposa do senhor lhe arma desejo,
-E o casto foge, deixando o manto e o pejo.
+Cala-se o mundo ante o augusto excesso:
+A Páscoa antiga acha o seu Cordeiro;
+O maná, o altar, o sangue posto ao umbral espesso,
+Tudo se cumpre ali, mais verdadeiro.
+Não é figura já, mas real acesso
+Do próprio Deus em pão e vinho inteiro;
+E o Poeta, em silêncio reverente,
+Sente que o Céu se faz comida à gente.
 
 **10**
 
-Calúnia então o lança à escura torre,
-Não por delito, mas por ter vencido;
-Porém nem lá a providência morre,
-Nem fica o justo ao fundo desvalido.
-Dois servidores do alto paço acodem
-Na mesma noite a um sonho repartido;
-José lhes lê no signo a sorte inteira:
-Ao copeiro, favor; ao padeiro, a morte.
+Mas junto ao dom se move a sombra escura;
+Judas traz no peito a noite e o preço.
+O Mestre o mostra sem ferir a mesa pura,
+Dando ainda ao traidor o mesmo acesso.
+Sai ele à rua; e mais se fecha a altura
+Do ar noturno em seu torcido regresso.
+Era noite — e no breu do coração vendido
+Entrava o príncipe antigo e enfurecido.
 
 **11**
 
-Dois anos vão. Comparece ao rei agora,
-E ouve-lhe atento a dupla visão grave.
-“Sete anos”, diz, “de abundância sonora,
-Sete de fome hão de morder a terra.
-Guarda nos celeiros quanto o chão aflora,
-Porque o futuro avança e já se encerra.”
-Vê Faraó no hebreu espírito divino,
-E entrega-lhe o anel, o carro e o destino.
+Fala Jesus do amor por mandamento novo,
+Da videira e dos ramos em seu ser,
+Do ódio do mundo contra o santo povo,
+Da paz que nEle só se pode ter.
+Promete o Espírito, consolador e fogo,
+Que há de ensinar, lembrar e fortalecer;
+E eleva ao Pai a sacerdotal rogativa,
+Guardando em prece sua grei cativa.
 
 **12**
 
-Corre José as terras do Nilo cheio,
-Mede os trigais, recolhe a larga enchente;
-Empilha o grão como se fosse areia,
-Pondo remédio antes do mal presente.
-Passam-se os anos; muda-se o ar do meio;
-Cala-se o campo, a espiga cai dolente.
-Então o mundo, roído de penúria,
-Vem bater ao Egito em busca de fartura.
+Sai depois ao jardim de Getsêmani,
+Levando Pedro, Tiago e João consigo;
+O peso da hora cai-lhe sobre a carne,
+E a alma geme em pavor sem ter castigo.
+Não foge à dor, nem busca alívio vário,
+Mas prostra-se ante o cálice inimigo:
+"Se possível, passe; contudo, seja
+Não o que eu quero, Pai, mas o que tua vontade deseja."
 
 **13**
 
-Descem de Canaã os filhos de Israel,
-Sem Benjamim, que o pai retém consigo;
-Entram, se inclinam, cumprem-se em José
-Os sonhos que guardara em peito antigo.
-Reconhece-os o irmão, mas sobre o véu
-Oculta o rosto, duro como um inimigo;
-Prova-lhes a verdade, a paz e o dano,
-E faz da lembrança um instrumento humano.
+Sua em sangue o Novo Adão no horto,
+Vencendo ali a antiga rebeldia;
+Onde o primeiro em flor perdeu conforto,
+Ganha o Segundo em suor a nova via.
+Dormem os seus, de tristeza quase mortos,
+E o Anjo o fortalece em agonia;
+Até que ao longe chega a turba armada,
+Guiada por um beijo e por espada.
 
 **14**
 
-Prende Simeão, exige o mais pequeno,
-Devolve a prata, fere-lhes a mente;
-Cada palavra soa como um veneno
-Que acorda a antiga culpa adormecente.
-Dizem entre si: “Pagamos hoje o aceno
-Do mal que fizemos ao irmão dolente;
-Vimos-lhe a angústia, e duros persistimos.”
-José os ouve e chora onde não o vimos.
+"Amigo, a que vieste?" — assim responde
+Ao traidor o Senhor, sem vil aspereza.
+Cai por terra a coorte, quando ele esconde
+No simples "Eu sou" a eterna fortaleza.
+Mas entrega-se livre, porque o Pai lhe ordene,
+E sara ainda a orelha em sua nobreza.
+Não vence o Cristo por fugir ao açoite,
+Mas por entrar senhor na própria noite.
 
 **15**
 
-Cede por fim o velho, em grande pena,
-E desce Benjamim com seus irmãos.
-José os recebe à mesa, e ordena a cena
-Com sabedoria oculta em suas mãos.
-Mas põe no saco do caçula a taça plena,
-E manda atrás os servos e os grilhões;
-Voltam os filhos de Jacó turbados,
-Como réus outra vez diante do passado.
+Levado vai ao sumo sacerdócio,
+Onde a mentira busca falso acordo;
+Torcem testemunhos contra o Justo e sóbrio,
+Como se o Sol pudesse tornar-se morto.
+Cala-se o Cristo em majestoso ócio,
+Até que ao Nome responde em tom absorto.
+Rasgam-se vestes, gritam "blasfemia!",
+E o Santo sofre escárnio e profecia.
 
 **16**
 
-Então se ergue Judá, não mais vendido
-À voz do ganho ou da primeira inveja;
-Lembra o pai, lembra o irmão envelhecido,
-E a dor que em Benjamim de novo veja.
-Oferece-se escravo, comovido,
-Para que o moço ao velho lar volte e veja;
-E neste brado, grave e penitente,
-Quebra-se em José a represa do vivente.
+Pedro, ao longe, no pátio frio e aceso,
+Nega três vezes o Senhor amado;
+Canta o galo, e o olhar do Mestre, ileso,
+Trespassa o peito do discípulo turbado.
+Sai Pedro a chorar seu medo e peso,
+Mais pobre e mais humilde que humilhado;
+Porque a graça, antes de erguer a pedra,
+Quebra-lhe o orgulho e o coração depedra.
 
 **17**
 
-Manda sair os egípcios. Fica o pranto
-Soando pelo paço em alta cheia.
-“Eu sou José!” — e esse nome, em vivo espanto,
-Fere os irmãos como celeste ideia.
-“Sou vosso irmão, que vendestes; contudo,
-Não vos consuma agora a culpa feia:
-Deus me enviou primeiro, em vossa frente,
-Para guardar-vos vida entre a má gente.”
+Levam-no a Pilatos; o poder romano
+Lava as mãos sem lavar-se a consciência.
+Herodes o remete em vão e engano,
+Vestindo-o de irrisória magnificência.
+Clama a turba, num furor já desumano,
+Por Barrabás e contra a Inocência;
+E o juiz, temendo mais a voz da praça,
+Entrega o Rei à cruz que o povo abraça.
 
 **18**
 
-Abraça Benjamim; depois um a um
-Beija os irmãos, e o choro faz-se vinho.
-Manda buscar o pai, seu velho e comum
-Pranto de tantos anos sem caminho.
-Faraó se alegra; nada falta agora
-Ao carro que há de honrar tal peregrino;
-E por Gosém prepara casa e pão,
-Como quem serve a mais alta eleição.
+Sobem-lhe às costas o madeiro duro,
+Como a Isaac outrora a lenha erguida;
+Vai o Cordeiro ao monte mais escuro,
+Levando em si a culpa alheia e a vida.
+ Mulheres choram; Ele, em tom mais puro,
+Manda-as chorar a futura ferida.
+Chega ao Calvário, e a mão que tudo criara
+É presa ao lenho que o mundo preparara.
 
 **19**
 
-Ao ouvir que José ainda vivia,
-Quase desfalece o velho em incredulidade;
-Depois revive, e em Bersabé, na via,
-Oferece ao Deus dos pais sua vontade.
-Na noite fala o Senhor: “Não temas; desce:
-No Egito farei grande tua cidade.
-Eu descerei contigo à terra estranha,
-E minha mão te tornará à montanha.”
+Erguido entre ladrões, por trono a cruz,
+Reina o Senhor no auge do abandono;
+Pede perdão por quem lhe apaga a luz,
+Abre ao ladrão contrito o eterno trono.
+Dá a Mãe ao discípulo, e em negra cruz
+Sente o peso do cálice sem sono.
+Clama por sede, cumpre a Escritura inteira,
+E entrega ao Pai a vida derradeira.
 
 **20**
 
-Assim desce Israel com sua semente,
-Ao carro não de exílio, mas de trama
-Que o Céu dispôs oculta e longamente,
-Quando da dor faz berço à sua chama.
-O mal dos homens quis ferir um inocente;
-Deus fez do golpe celeiro, pão e fama.
-E o canto aprende, ao ver José vencedor,
-Que a providência escreve mais fundo que a dor.
+Rasga-se o véu; treme a terra; cala-se o templo;
+O centurião confessa o Rei verdadeiro.
+Do lado aberto corre duplo exemplo:
+Sangue e água ao mundo prisioneiro.
+Põe-se no túmulo o Corpo em santo templo,
+Enquanto a noite pensa ter por derradeiro
+O Verbo eterno. Mas no escuro chão
+Já germina a vitória da ressurreição.
