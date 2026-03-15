@@ -1,0 +1,36 @@
+/*
+ * Cloudflare Pages _headers
+ * Applied to all responses from this static site.
+ */
+
+/*
+ * All pages: security + cache
+ */
+https://:project.pages.dev/*
+  X-Frame-Options: DENY
+  X-Content-Type-Options: nosniff
+  Referrer-Policy: strict-origin-when-cross-origin
+  Permissions-Policy: camera=(), microphone=(), geolocation=()
+  Content-Security-Policy: default-src 'self'; script-src 'self' 'unsafe-inline' https://cdn.jsdelivr.net; style-src 'self' 'unsafe-inline' https://fonts.googleapis.com; font-src https://fonts.gstatic.com; connect-src 'self'; img-src 'self' data:; frame-ancestors 'none'
+
+/*
+ * HTML pages: short cache (content may update)
+ */
+/*.html
+  Cache-Control: public, max-age=3600, stale-while-revalidate=86400
+
+/
+  Cache-Control: public, max-age=3600, stale-while-revalidate=86400
+
+/*
+ * CSS: medium cache
+ */
+/style.css
+  Cache-Control: public, max-age=86400, stale-while-revalidate=604800
+
+/*
+ * Markdown source files: short cache (poem may be revised)
+ */
+/*.md
+  Cache-Control: public, max-age=3600, stale-while-revalidate=86400
+  Content-Type: text/plain; charset=utf-8

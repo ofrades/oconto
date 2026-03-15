@@ -4,220 +4,220 @@
 
 **1**
 
-Não quis o Cristo em Emaús calado
-Parar no Gênesis apenas contemplado;
-Abriu também Moisés e o mar rasgado,
-A Lei, o ermo e o povo rebelado.
-E o que parece só passado enterrado
-Surge em seu corpo e sangue consumado;
-Pois todo o Êxodo, a nuvem e o Sinai
-Pediam já o Cordeiro que por nós vai.
+Vencidas já as eras preparadas,
+Torna o Poeta à Cidade do destino;
+Ali se apertam leis, promessas, espadas,
+E o Cordeiro se adianta ao desatino.
+Jerusalém levanta suas entradas,
+Dourada em templo, fumo e som divino;
+Mas sob o ouro e o sacro aparato
+Se move a noite em mais severo trato.
 
 **2**
 
-No Egito geme o povo sob o barro,
-Com o nome dos pais em lágrimas guardado;
-Mas Deus se lembra, e do espinhal sem carro
-Chama Moisés por fogo não gastado.
-"Eu Sou" ressoa em meio ao chão bizarro,
-E o servo treme ante o mistério alçado;
-Assim começa, em Nome e chama dura,
-A libertação que excede a escravatura.
+Vem o Senhor de Betânia à colina,
+Sabendo quanto custa tal subida;
+Não busca o carro, a púrpura ou a ruína
+Do inimigo em batalha presumida.
+Escolhe humilde jumento, e assim ensina
+Que outra é sua realeza prometida;
+Cumpre-se o oráculo do rei manso,
+Que vence o mundo sem guerreiro avanço.
 
 **3**
 
-Fere-se o Nilo, as trevas, a semente,
-O granizo, o gafanhoto, a carne e o gado;
-E Faraó endurece inutilmente
-O peito, contra o Céu obstinado.
-Mas cresce a noite para que mais resplendente
-Se veja o braço do Senhor irado;
-Não por capricho, mas por santo juízo,
-Que humilha o ídolo e exalta o prometido.
+Estende a turba vestes, ramos, vozes;
+"Hosana" sobe ao Filho de David.
+Mas mistura-se em muitas almas eufóricas
+A verdade a um querer de rei gentil.
+Uns veem o Santo; outros sonham armas fortes,
+Libertação terrena e mando vil;
+E o mesmo canto que o aclama em festa
+Já guarda em sombra a mudança funesta.
 
 **4**
 
-Chega a Páscoa: um cordeiro sem mancha é dado,
-Seu sangue marca portas na aflição;
-Come-se em pressa, o lombo já cingido,
-O pão sem levedura e o bastão na mão.
-Passa a morte, e o povo resguardado
-Sai para a noite em nova condição;
-Mas Emaús mostrou, no pão partido,
-Que ali já estava Cristo prefigurado e escondido.
+Chora Jesus a Cidade endurecida,
+Que não conhece o tempo da visita;
+Tem muro, culto, lâmpada acendida,
+Mas o coração ao seu Deus evita.
+Vê já de longe a pedra consumida,
+O templo em pó, a glória derrocada e aflita;
+Pois toda paz recusada em seu começo
+Volta depois em juízo mais espesso.
 
 **5**
 
-Abre-se o mar ante a vara obediente,
-E o povo passa em seco, entre muralhas;
-Voltam as águas sobre a hoste insolente,
-Sepultando cavalo, rei e atalhas.
-Cantam Moisés e Míriam triunfantemente,
-Porque Deus vence sem precisar batalhas
-À moda humana; e no vermelho abismo
-Já se figura a água do batismo.
+Entra no átrio e vê o santo espaço
+Feito mercado, moeda e voz profana;
+Derruba mesas, corta o torpe laço,
+E em zelo puro a casa do Pai reclama.
+Os cegos, pobres, crianças e cansaço
+Acham nele a realeza mais humana;
+Mas os que guardam preço, posto e vara,
+Concebem contra Ele trama mais avara.
 
 **6**
 
-No ermo aprende Israel fome e demora;
-Em Mara prova a água amarga e dura;
-Do Céu lhe cai maná na fria aurora,
-E a rocha aberta em sede dá fartura.
-Mas cada dom, ao mesmo tempo, implora
-Fé que não murmure em noite escura;
-Pois não vive o homem só de pão e fonte,
-Mas da Palavra que o conduz no monte.
+Fala então em parábolas de vinha,
+De servos mortos e do Filho expulso;
+Mostra que a pedra rejeitada vinha
+A ser cabeça de mais firme impulso.
+Perguntam-lhe do censo, e sua linha
+Não cai nem no temor nem no tumulto:
+Dai a César o selo em moeda bruta,
+E a Deus o homem, onde a imagem frutifica.
 
 **7**
 
-Vem Amalec; no vale a espada soa,
-Enquanto a mão de Moisés se ergue ao vento.
-Quando a intercessão no alto se povoa,
-Cede o inimigo ao povo em movimento.
-Não basta a força que no braço entoa,
-Se o Céu não sustém todo o fundamento;
-E o Cristo, ao abrir tal guerra antiga,
-Mostra na cruz a mão que mais obriga.
+Também dos mortos, do maior preceito,
+Do Cristo e do Senhor de David falam;
+Querem prendê-lo em rede de conceito,
+Mas diante do Sol as sombras se embaraçam.
+Responde o Mestre com tão justo e estreito
+Peso, que os sábios se confundem e se calam;
+Pois não há astúcia humana ou lei torcida
+Que ao Verbo eterno desordene a vida.
 
 **8**
 
-Fumega o Sinai em trovão e chama,
-E a trompa faz tremer vale e penedo;
-Desce o Senhor, e a multidão o aclama
-Com lábios prontos, mas sem íntimo enredo.
-Dá a Lei que a alma e o corpo inteiro chama,
-Não só o gesto, mas o amor e o medo;
-E assim o povo, salvo da corrente,
-Aprende que a liberdade pede mente.
+Ai dos doutores, quando o branco honrado
+Cobre por dentro tumba apodrecida!
+Ai do zelo que conta o gesto externo,
+Mas deixa órfã a justiça e a reta vida!
+Assim denuncia o Mestre ao povo e ao templo
+A máscara piedosa e consumida;
+E quanto mais resplandece a sua luz,
+Mais contra Ele se adensa a negra cruz.
 
 **9**
 
-Mas tarda o mediador, e o ouro logo
-Se faz novilho à turba vacilante;
-Troca-se a Glória por metal e fogo,
-E ao pé do monte dança o povo errante.
-Quebra-se a pedra, mói-se o ídolo em jogo,
-Sobe Moisés a rogar de novo adiante;
-E o zelo que ferira a transgressão
-Abre à graça outra vez a eleição.
+No monte das Oliveiras, vê do alto
+A cidade, o templo e o tempo que declina;
+Fala de enganos, guerra e sobressalto,
+De vigília fiel em noite assassina.
+Não cessa o mundo em seu confuso assalto,
+Nem a história humana em sua ruína;
+Mas bem-avento quem, em meio ao abalo,
+Persevera em amor e santo estalo.
 
 **10**
 
-Mostra-lhe Deus, na fenda da alta penha,
-A glória que não cabe em carne humana;
-Proclama o Nome, cuja piedade venha
-Mais forte que a justiça soberana.
-Depois o tabernáculo se desenha,
-Morada pobre da Presença arcana;
-E a nuvem, pousando em tenda peregrina,
-Faz do deserto pátria que caminha.
+Louva a viúva pobre, cujo gesto
+Pesa mais que o tesouro dos abastados;
+Pois Deus não mede a oferta pelo resto,
+Mas pela vida dada aos seus cuidados.
+Na moeda mínima vê-se manifesto
+O coração inteiro, despojado;
+E o Reino, mais que pompa ou abundância,
+Prefere a fé humilde à vangloriância.
 
 **11**
 
-Segue o caminho entre rebeldes vozes,
-Espias, medo, Cades e sentença;
-Quarenta anos consomem gerações atrozes,
-Porque sem fé não se possui a herança.
-Mas mesmo no castigo e nas ferocidades,
-Deus guarda Caleb, Josué e a esperança;
-E o bronze erguido contra a serpe ardente
-Já mostra em figura o Crucificado vivente.
+Em Betânia lhe derramam nardo puro,
+Prenúncio doce e grave de mortuário;
+Enquanto Judas pesa em cálculo escuro
+O amor gratuito em preço mercenário.
+Cheira a casa inteira a sepulcro futuro,
+E a unção torna-se gesto necessário;
+Pois antes do madeiro e do tormento,
+O amor antecipa o sepultamento.
 
 **12**
 
-Morre Moisés, olhando de longe a terra;
-Passa a Josué a espada e o cuidado.
-O Jordão foge à arca, e a antiga guerra
-Se abre em Canaã, por Deus levado.
-Cai Jericó não pelo braço que se encerra,
-Mas pela obediência e o som sagrado;
-E assim se aprende, à entrada da conquista,
-Que a fé é mais que máquina prevista.
+Já se combina em conselho escondido
+A perda do Justo sob pretexto santo;
+Dizem que convém, para salvar o povo,
+Que um só pereça e cesse o seu encanto.
+Falam por cálculo; mas do arcano ouvido
+Sai mais profundo e providente canto:
+Que um morra, sim — mas não por vil prudência,
+Antes por resgatar o mundo em clemência.
 
 **13**
 
-Mas a herança, sem memória obediente,
-Logo se torna campo de recaída;
-Nos Juízes gira o ciclo penitente:
-Peca, clama, é ferido, e acha saída.
-Débora canta; Gideão, com pouca gente,
-Vence a multidão por mão não presumida;
-Sansão, em força e queda misturadas,
-Mostra o homem entre dons e sombras dadas.
+Vai Judas pouco a pouco à noite alheia,
+Abrindo o peito à cobra do contrato;
+Troca o amigo por mísera moeda,
+Como outrora José por prata e trato.
+Mas onde o homem vende e o Inferno espraia
+Seu velho logro em transação e pacto,
+Deus faz do mal, sem lhe tirar negrura,
+A porta mesma da maior ventura.
 
 **14**
 
-Samuel ouve de noite a Voz antiga,
-Enquanto o povo pede um rei vistoso;
-Quer ser como as nações, e assim obriga
-A sofrer Saul, de início promissor e pomposo.
-Mas Deus escolhe em Davi outra liga,
-Pastor menor, porém de peito ardoroso;
-E o moço, contra o bronze filisteu,
-Vence em nome do Senhor, não do braço seu.
+Entretanto, o Senhor com os Doze anda,
+Sabendo a hora em que a Páscoa se aproxima;
+Lê em cada rosto o medo que se branda,
+A vaidade, o amor, a sombra e a estima.
+Não lhes descobre ainda a mesa sacrossanta,
+Mas cresce em torno a gravidade que os anima;
+Como mar que antes da tormenta espera,
+Assim se espessa o ar da última ceia.
 
 **15**
 
-Padece o ungido longo desterro e prova,
-Poupa o inimigo e aprende realeza;
-Sobe enfim a Sião, e a arca renova
-No centro da cidade a santa firmeza.
-Canta ao Senhor, e a promessa lhe coroa
-A casa com perpétua fortaleza:
-De seu trono virá, em tempo eleito,
-Um Rei sem fim, de paz e sangue feito.
+Recorda a todos que o maior no Reino
+Não se assenta no alto por direito;
+Quem quer subir, desça; quem busca o centro,
+Sirva ao menor com coração desfeito.
+Desfaz em verbo o mesmo antigo engano
+Que em reis e em tronos fez o mundo estreito;
+Pois reinará, mas por estranho modo,
+Aquele que se entregar inteiro e todo.
 
 **16**
 
-Levanta Salomão o templo brilhante,
-Com ouro, cedro, nuvem e memória;
-Desce a Presença ao santo recinto amante,
-E a glória enche de peso a alta história.
-Mas o coração do homem é vacilante,
-Mesmo entre canto, sabedoria e vitória;
-Divide-se o reino, e sua pompa breve
-Mostra quão pouco o ouro ao Deus retém.
+O povo ainda o cerca, e muitos pedem
+Sinal mais alto, pão, espada ou fama;
+Outros, no íntimo, sua morte tramam,
+Temendo perder trono, rito e cama.
+Mas Ele segue ao termo que lhe mede
+O Pai, em santo amor que nunca brama;
+Livre caminha ao laço já sabido,
+Mais senhor por se dar que por ser temido.
 
 **17**
 
-Ao reler Cristo em Emaús tais eras,
-Não deixa vê-las como fato avulso:
-O cordeiro, o mar, o maná, as fronteiras,
-O bronze, o trono, o templo em santo impulso,
-Tudo eram sombras verdadeiras,
-Não falsidade, mas penhor convulso;
-Cada figura, em seu parcial ensejo,
-Pedia Corpo, Cruz, Altar e Beijo.
+Cai a tarde sobre os muros e os telhados,
+E a Cidade respira um ar de prova;
+Os cordeiros se preparam nos lares,
+Enquanto o Cordeiro maior se move e aprova.
+Tudo converge: profetas, reis passados,
+Templo, exílio, promessa antiga e nova;
+E a Páscoa, prestes a romper seu véu,
+Inclina a terra para o peso do Céu.
 
 **18**
 
-Pois Ele é o Cordeiro da saída,
-É o mar que abre à morte nova fuga,
-É o pão do céu, a rocha que dá vida,
-O tabernáculo em que Deus se conjuga.
-É mais que Josué na terra prometida,
-Mais que David na paz que não caduca,
-Mais que o templo, onde a Presença arde,
-Porque em sua carne o Céu inteiro guarde.
+Ainda não se rasga o último segredo,
+Nem a eucatástrofe alumia a treva;
+Convém que o drama chegue ao fundo e medo,
+Que a noite inteira sobre o Justo se atreva.
+Só assim o giro, no derradeiro enredo,
+Mostrará a alegria que do abismo se eleva;
+Por isso o épico aqui detém a aurora,
+E deixa a Cidade à beira da última hora.
 
 **19**
 
-Assim o livro da Lei e do deserto,
-Lido depois da Páscoa, muda de brilho;
-Não é só estrada, estatuto e concerto,
-Mas longa pedagogia para o Filho.
-O que no Sinai parecia tão coberto,
-Abre-se em Cristo como claro trilho;
-E a antiga aliança, com sangue e pão,
-Converge à mesa da nova redenção.
+Jerusalém fulgura, mas não sabe
+Que nela entra o Juiz e a Vítima unida;
+Cada pedra, cada pórtico já cabe
+Na tragédia santa e na futura vida.
+O templo pesa, o incenso sobe e abre
+Mais fundo o contraste da hora homicida;
+E o Poeta, vendo o céu sobre a metrópole,
+Sente que o mundo inteiro aguarda a noite própria.
 
 **20**
 
-Feche-se o canto entre a nuvem e o madeiro,
-Entre o Jordão, a arca e a Cruz erguida;
-Do Egito à Sião, do maná ao cordeiro,
-Vai-se entendendo a una e santa vida.
-O Ressuscitado, mestre verdadeiro,
-Fez do passado uma promessa relida;
-E onde antes víamos só lei, guerra e rito,
-Vemos agora o rosto inteiro de Cristo.
+Feche-se o canto à porta da grande ceia,
+Com Judas já na sombra e o nardo no ar;
+O Rei entrou na Cidade, e a trama alheia
+Julga cercá-lo, sem poder mandá-lo.
+Mas ainda a vitória ao fundo se ateia,
+Oculta sob a noite que há de vir e estar;
+E o coração do épico se recolhe,
+Para que a Cruz no canto seguinte o molhe.

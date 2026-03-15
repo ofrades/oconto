@@ -1,0 +1,166 @@
+<!DOCTYPE html>
+<html lang="pt">
+<head>
+  <meta charset="UTF-8" />
+  <meta name="viewport" content="width=device-width, initial-scale=1.0" />
+  <title>O Canto</title>
+  <meta name="description" content="Épica cristã em dez cantos." />
+  <link rel="stylesheet" href="style.css" />
+  <link rel="preconnect" href="https://fonts.googleapis.com" />
+  <link rel="preconnect" href="https://fonts.gstatic.com" crossorigin />
+</head>
+<body>
+
+  <nav class="nav" id="top-nav">
+    <a class="nav-arrow" id="nav-prev" href="index.html">← Índice</a>
+    <span class="nav-center" id="nav-label"></span>
+    <a class="nav-arrow right" id="nav-next" href="index.html"></a>
+  </nav>
+
+  <main class="page">
+
+    <header class="canto-header">
+      <p class="canto-eyebrow" id="canto-eyebrow">Canto</p>
+      <h1 class="canto-page-title" id="canto-page-title"></h1>
+      <p class="canto-page-subtitle" id="canto-page-subtitle"></p>
+    </header>
+
+    <article id="canto-body">
+      <p class="loading" id="loading-state">A carregar…</p>
+    </article>
+
+    <nav class="canto-footer-nav" aria-label="Navegação entre cantos">
+      <a id="footer-prev" href="index.html">← Canto anterior</a>
+      <a class="home-link" href="index.html">O Conto</a>
+      <a id="footer-next" href="index.html">Próximo canto →</a>
+    </nav>
+
+  </main>
+
+  <footer class="site-footer page">
+    <p>
+      Épica cristã em língua portuguesa &middot; Dez cantos em oitava-rima<br />
+      Na tradição de Camões &middot; Na substância das Escrituras &middot; No espírito de Tolkien
+    </p>
+  </footer>
+
+  <!-- marked.js: lightweight Markdown → HTML renderer, no dependencies -->
+  <script src="https://cdn.jsdelivr.net/npm/marked@12/marked.min.js"></script>
+
+  <script>
+    // ── Canto metadata ──────────────────────────────────────────
+    const CANTOS = [
+      { n: 1,  roman: 'I',    file: 'canto_I.md',    title: 'Proémio e Anunciação',           subtitle: 'Proposição · Invocação · Gabriel e Maria' },
+      { n: 2,  roman: 'II',   file: 'canto_II.md',   title: 'Advento oculto',                 subtitle: 'Visitação · Magnificat · Natividade · Magos · Simeão' },
+      { n: 3,  roman: 'III',  file: 'canto_III.md',  title: 'Manifestação do Filho',          subtitle: 'Baptismo · Tentação · Discípulos · Primeiros sinais' },
+      { n: 4,  roman: 'IV',   file: 'canto_IV.md',   title: 'O Reino em combate',             subtitle: 'Milagres · Parábolas · Transfiguração · Lázaro' },
+      { n: 5,  roman: 'V',    file: 'canto_V.md',    title: 'A verdadeira Páscoa',            subtitle: 'Última Ceia · Getsémani · Julgamentos · Crucificação' },
+      { n: 6,  roman: 'VI',   file: 'canto_VI.md',   title: 'Vitória sobre a morte',         subtitle: 'Túmulo vazio · Emaús · Tomé · Ascensão' },
+      { n: 7,  roman: 'VII',  file: 'canto_VII.md',  title: 'O livro das origens lembrado',  subtitle: 'Criação · Queda · Abraão · Isaac · Jacob · José' },
+      { n: 8,  roman: 'VIII', file: 'canto_VIII.md', title: 'Lei, deserto e reino',           subtitle: 'Êxodo · Sinai · Josué · Davi · Templo' },
+      { n: 9,  roman: 'IX',   file: 'canto_IX.md',   title: 'Profetas, exílio e espera',      subtitle: 'Profetas · Queda de Jerusalém · Exílio · Retorno' },
+      { n: 10, roman: 'X',    file: 'canto_X.md',    title: 'Espírito, Igreja e consumação', subtitle: 'Pentecostes · Missão · Mártires · Nova Jerusalém' },
+    ];
+
+    // ── Read ?canto=N from URL ──────────────────────────────────
+    function getCantoNumber() {
+      const params = new URLSearchParams(window.location.search);
+      const raw = parseInt(params.get('canto'), 10);
+      if (!raw || raw < 1 || raw > 10) return 1;
+      return raw;
+    }
+
+    // ── Update <title> and meta ─────────────────────────────────
+    function updateMeta(canto) {
+      document.title = `Canto ${canto.roman} — ${canto.title} · O Canto`;
+      document.querySelector('meta[name="description"]').setAttribute(
+        'content',
+        `${canto.title}. ${canto.subtitle}. Épica cristã em dez cantos.`
+      );
+    }
+
+    // ── Populate page headers and navigation ────────────────────
+    function populateNav(canto) {
+      const idx = canto.n - 1;
+      const prev = CANTOS[idx - 1] || null;
+      const next = CANTOS[idx + 1] || null;
+
+      // Top nav
+      document.getElementById('nav-label').textContent =
+        `Canto ${canto.roman} · ${canto.title}`;
+
+      const navPrev = document.getElementById('nav-prev');
+      if (prev) {
+        navPrev.href = `canto.html?canto=${prev.n}`;
+        navPrev.textContent = `← ${prev.roman}`;
+      } else {
+        navPrev.href = 'index.html';
+        navPrev.textContent = '← Índice';
+      }
+
+      const navNext = document.getElementById('nav-next');
+      if (next) {
+        navNext.href = `canto.html?canto=${next.n}`;
+        navNext.textContent = `${next.roman} →`;
+      } else {
+        navNext.textContent = '';
+      }
+
+      // Page header
+      document.getElementById('canto-eyebrow').textContent = `Canto ${canto.roman}`;
+      document.getElementById('canto-page-title').textContent = canto.title;
+      document.getElementById('canto-page-subtitle').textContent = canto.subtitle;
+
+      // Footer nav
+      const footerPrev = document.getElementById('footer-prev');
+      if (prev) {
+        footerPrev.href = `canto.html?canto=${prev.n}`;
+        footerPrev.textContent = `← Canto ${prev.roman}`;
+      } else {
+        footerPrev.href = 'index.html';
+        footerPrev.textContent = '← Índice';
+      }
+
+      const footerNext = document.getElementById('footer-next');
+      if (next) {
+        footerNext.href = `canto.html?canto=${next.n}`;
+        footerNext.textContent = `Canto ${next.roman} →`;
+      } else {
+        footerNext.href = 'index.html';
+        footerNext.textContent = 'Índice →';
+      }
+    }
+
+    // ── Render the canto Markdown into the article ──────────────
+    async function renderCanto(canto) {
+      const body = document.getElementById('canto-body');
+      const loading = document.getElementById('loading-state');
+
+      try {
+        const res = await fetch(canto.file);
+        if (!res.ok) throw new Error(`HTTP ${res.status}`);
+        const md = await res.text();
+
+        // Configure marked: no smart quotes, plain renderer
+        marked.setOptions({ mangle: false, headerIds: false });
+
+        const html = marked.parse(md);
+        body.innerHTML = html;
+      } catch (err) {
+        body.innerHTML = `<p class="loading">Erro ao carregar o canto. (${err.message})</p>`;
+      }
+    }
+
+    // ── Boot ────────────────────────────────────────────────────
+    (async function init() {
+      const n = getCantoNumber();
+      const canto = CANTOS[n - 1];
+
+      updateMeta(canto);
+      populateNav(canto);
+      await renderCanto(canto);
+    })();
+  </script>
+
+</body>
+</html>
