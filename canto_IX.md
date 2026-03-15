@@ -106,7 +106,7 @@ Mas por entrar Senhor no próprio açoite.
 Levado vai ao sumo sacerdócio,
 Onde a mentira busca falso acordo;
 Torcidas testemunhas fazem negócio,
-Como se o Sol pudesse tornar-se mordo.
+Como se o Sol pudesse tornar-se morto.
 Cala-se o Cristo em majestoso ócio,
 Até que ao Nome responde em tom absorto;
 Rasgam-se vestes, grita-se “blasfemia!”,

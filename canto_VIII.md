@@ -88,13 +88,13 @@ Mas deixa órfã a justiça em sua lida.
 Assim os fere o Cristo, e os desdoura,
 Com luz mais pura que a dourada vida;
 E quanto mais resplende o santo influxo,
-Mais se adensa o rancor, mais negro o fluxo.
+Mais se adensa o rancor e o negro fluxo.
 
 **9**
 
 No monte das Oliveiras, contemplando
 A cidade, o Templo e a idade vã,
-Fala de guerras, fraudes, vigilando
+Fala de guerras, fraudes, vigiando
 A fé que deve ficar firme e sã.
 Não cessa o século, em tumulto brando,
 De perseguir a verdade soberã;
@@ -152,7 +152,7 @@ Sabendo a hora em que a Páscoa se aproxima;
 Lê nos semblantes o temor que aninha,
 A vaidade, o amor, a dúvida e a estima.
 Não mostra ainda a mesa em que se assina
-O novo pacto em sangre e em cima;
+O novo pacto em sangue lá por cima;
 Mas cresce em torno o ar da hora extrema,
 Como mar que prenuncia a mais dura gema.
 
