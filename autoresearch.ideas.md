@@ -1,2 +1,2 @@
-- Revisar `canto_I.md`–`canto_V.md` depois de avançar mais no poema, para unificar melhor o proémio, a invocação e a arquitetura global **in media res**.
-- Nos próximos cantos do Êxodo, privilegiar grandes cenas épicas e discursos formais: opressão, rubo ardente, confronto com Faraó, pragas, Páscoa e travessia do mar.
+- Revisar `canto_I.md`–`canto_VII.md` depois de avançar mais no poema, para unificar melhor o proémio, a invocação e a arquitetura global **in media res**.
+- No arco do Sinai, privilegiar grandes cenas épicas e discursos formais: maná, monte fumegante, Decálogo, bezerro de ouro, intercessão de Moisés e tabernáculo.
