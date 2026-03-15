@@ -2,8 +2,9 @@
 
 ## Goal
 
-Audit every line of the 10 cantos for strict decasyllabic scansion.
-Fix lines that fail. Report the number of cantos fully passing scansion as the metric.
+Perform a **tool-assisted explicit metrical audit** of the 10 cantos for stricter Camonian decasyllabic cadence.
+
+This pass is narrower and stricter than the previous broad scansion-tightening pass: every canto should now be reviewed with an explicit syllable-count heuristic and basic caesura awareness, then revised where lines remain obviously loose.
 
 ## Vision
 
@@ -14,27 +15,24 @@ The Bible is the greatest story ever told: the true story of God, creation, fall
 This poem is a Christian epic: **Camões in form, Scripture in substance, Tolkien in spirit, with lexical-rhetorical reinforcement from Vieira where apt**.
 
 - It must not be a flat paraphrase of biblical episodes, but the singing of the Bible as the supreme true story.
-- The poem’s opening should remain **Annunciation-first**; its final great turn should remain **Resurrection-last**.
+- The poem’s opening remains **Annunciation-first**; its final great turn remains **Resurrection-last**.
 - The world of the poem is providential, not pagan: God, angels, demons, covenant, prophecy, worship, fall, judgment, exile, redemption, resurrection, consummation.
-- `data/on-fairy-stories1.pdf` must shape the poem’s inner imaginative atmosphere: wonder must remain serious, beautiful, perilous, and culminate in eucatastrophic joy.
-- Camonian form must now be enforced more strictly: ottava rima, stronger closure in the couplet, and verse music that does not merely narrate but resounds.
-- Vieira may supply weightier sacred diction, sermonic antithesis, and prophetic emphasis, so long as Camões remains the primary metrical and stanzaic model.
+- `data/on-fairy-stories1.pdf` must shape the imaginative atmosphere: wonder must remain serious, beautiful, perilous, and culminate in eucatastrophic joy.
+- Camonian form must now be enforced with explicit metrical checking, not only by ear.
+- Vieira may supply weightier sacred diction, sermonic antithesis, and prophetic emphasis, so long as Camões remains the primary stanzaic and metrical model.
 - Scripture governs the matter. Heightening and compression are allowed; distortion is not.
 
 ## Formal Constraints
 
-- Each canto should be revised toward **ottava rima** in the Camonian manner.
-- The default target stanza is **ABABABCC**.
-- Rhymes must be real and audible, not loose approximations that collapse the stanza.
-- The closing couplet should land with force, clarity, and summative energy.
-- Cadence should tend toward the elevated decasyllabic epic line, even if occasional local irregularities remain during drafting.
-- Diction should be raised, selective, and memorable; avoid flat modern phrasing.
-- If a canto keeps the architecture but fails the stanza music, it still requires revision.
+- Each canto should remain in **ottava rima** tending toward **ABABABCC**.
+- Lines should now be audited explicitly for a decasyllabic tendency using a repeatable heuristic.
+- Use a helper script to flag suspicious lines before revision.
+- Favor compact syntax, strong caesural balance, and less prose-like phrasing.
+- If a canto keeps the architecture but still has many metrically loose lines, it still needs revision.
 
 ## Current Structural Commitments
 
 Keep the corrected architecture already established:
-
 1. `canto_I.md` — Proémio e Anunciação
 2. `canto_II.md` — Advento oculto
 3. `canto_III.md` — Manifestação do Filho
@@ -56,15 +54,4 @@ The following texts are in `./data/` and must be studied before writing or revis
 
 ## Output
 
-Revise the cantos so the finished poem keeps the corrected architecture while also following Camonian stanza discipline much more rigorously. Keep output in `canto_I.md` through `canto_X.md`.
-
-## Metric
-
-After writing each canto, evaluate it yourself on a scale of 0–10 for:
-
-- formal rigor (oitava rima, meter)
-- epic grandeur (Homer, Virgil, Camões)
-- theological fidelity (Vulgate)
-- essay inspiration (Tolkien)
-
-Report the average as the metric. Only keep the canto if it scores above the previous best.
+Revise the cantos so the finished poem keeps the corrected architecture while also passing through a stricter explicit metrical audit. Keep output in `canto_I.md` through `canto_X.md`.
