@@ -5,7 +5,7 @@ python - <<'PY'
 from pathlib import Path
 import re
 
-tracker = Path('autoresearch.meter.txt')
+tracker = Path('autoresearch.originality.txt')
 entries = []
 if tracker.exists():
     seen = set()
@@ -28,5 +28,5 @@ for item in entries:
     count += 1
     print(f'{item}:{stanzas}')
 
-print(f'meter_audited_cantos={count}')
+print(f'originality_cantos={count}')
 PY

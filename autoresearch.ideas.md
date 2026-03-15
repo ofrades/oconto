@@ -1,0 +1,3 @@
+- Reescrever a abertura de `canto_I.md` para que o proémio e a invocação deixem de soar como decalque de *Os Lusíadas*, mantendo grandeza épica mas com proposição, imagens e andamento mais próprios.
+- Depois continuar um canto por vez, auditando aberturas e passagens excessivamente camonianas por imitação direta, começando por `canto_II.md`.
+- Onde útil, usar soluções mais próprias, mais bíblicas e mais vieirianas na energia retórica, sem perder a forma épica.
