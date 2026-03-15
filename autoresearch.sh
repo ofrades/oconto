@@ -5,22 +5,28 @@ python - <<'PY'
 from pathlib import Path
 import re
 
-romans = [
-    'I','II','III','IV','V','VI','VII','VIII','IX','X',
-    'XI','XII','XIII','XIV','XV','XVI','XVII','XVIII','XIX','XX'
-]
+tracker = Path('autoresearch.revised.txt')
+entries = []
+if tracker.exists():
+    seen = set()
+    for raw in tracker.read_text(encoding='utf-8').splitlines():
+        item = raw.strip()
+        if not item or item.startswith('#') or item in seen:
+            continue
+        seen.add(item)
+        entries.append(item)
 
 count = 0
-for roman in romans:
-    path = Path(f'canto_{roman}.md')
+for item in entries:
+    path = Path(item)
     if not path.exists():
-        break
+        continue
     text = path.read_text(encoding='utf-8')
     stanzas = len(re.findall(r'(?m)^\*\*\d+\*\*$', text))
     if stanzas < 10:
-        break
+        continue
     count += 1
-    print(f'{roman}:{stanzas}')
+    print(f'{item}:{stanzas}')
 
-print(f'completed_cantos={count}')
+print(f'revised_cantos={count}')
 PY

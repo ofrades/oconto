@@ -1,0 +1,8 @@
+- Revisar `canto_I.md` para ser verdadeiro proémio épico com invocação seguida da Anunciação, reunindo Eva, Abraão, David e os profetas no anúncio de Gabriel.
+- Revisar `canto_II.md` para o Advento oculto: Visitação, Magnificat, José, Natividade, pastores, Magos, Simeão e fuga para o Egito.
+- Revisar `canto_III.md` para a manifestação pública: Jordão, tentação, primeiros discípulos e primeiros sinais.
+- Revisar `canto_IV.md` para o Reino em combate: sermão, milagres, parábolas, Tabor, Lázaro e caminho para Jerusalém.
+- Revisar `canto_V.md` para a verdadeira Páscoa: ceia, Getsêmani, julgamentos e cruz.
+- Revisar `canto_VI.md` para ressurreição, Emaús, Tomé e Ascensão, fazendo de Emaús a dobradiça para os cantos retrospectivos.
+- Reestruturar `canto_VII.md`–`canto_IX.md` como memória sagrada e releitura tipológica do Antigo Testamento à luz de Cristo, não como reinício cronológico plano.
+- Refinar `canto_X.md` para manter Pentecostes, missão, martírio, Apocalipse e Nova Jerusalém como consumação eucatastófica.
