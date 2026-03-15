@@ -372,13 +372,14 @@ body {
   margin-top: 0;
 }
 
-/* Verse lines */
+/* Verse lines — stanza is one <p> with <br> between lines (breaks:true) */
 #canto-body > p:not(.stanza-num) {
   font-family: var(--font-serif);
   font-size: 1.08rem;
-  line-height: 1.95;
+  line-height: 2;
   color: var(--text);
   margin-bottom: 0;
+  white-space: normal;
 }
 
 /* ── Loading state ──────────────────────────────────────────── */

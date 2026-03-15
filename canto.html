@@ -140,7 +140,7 @@
         if (!res.ok) throw new Error(`HTTP ${res.status}`);
         const md = await res.text();
 
-        const html = marked.parse(md);
+        const html = marked.parse(md, { breaks: true });
         body.innerHTML = html;
 
         // Post-process: mark stanza-number paragraphs for CSS targeting.
