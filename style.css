@@ -452,6 +452,21 @@ body {
   line-height: 1.8;
 }
 
+.site-footer-credit {
+  margin-top: 0.75rem;
+  opacity: 0.6;
+}
+
+.site-footer-credit a {
+  color: var(--text-muted);
+  text-decoration: underline;
+  text-underline-offset: 2px;
+}
+
+.site-footer-credit a:hover {
+  color: var(--gold);
+}
+
 /* ── Utility ────────────────────────────────────────────────── */
 
 ::selection {
